@@ -1,0 +1,217 @@
+# Image credits — 3 Hours of Everyday Invention Facts to Fall Asleep To \| Relaxing History for Sleep
+
+Video: https://www.youtube.com/watch?v=qTGvlFPNxFk
+
+Every work below appears in the video and is used under the licence shown (title, author, licence, source). Licence texts: https://creativecommons.org/licenses/
+
+- Downtown\_Charlottesville\_fire\_hydrant.jpg by Ben Schumin (CC BY-SA 2.5) — https://commons.wikimedia.org/wiki/File:Downtown_Charlottesville_fire_hydrant.jpg
+- SF Fire Hydrant Vote for Equality by Tony Fischer Photography (CC BY 2.0) — https://www.flickr.com/photos/22714323@N06/4935487026
+- East\_Greenwich\_(Rhode\_Island,\_USA),\_Hydrant\_--\_2006\_--\_10.jpg by Dietmar Rabich (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:East_Greenwich_(Rhode_Island,_USA),_Hydrant_--_2006_--_10.jpg
+- Fire Hydrant by Night Photo (CC BY 2.0) — https://www.flickr.com/photos/187543158@N07/52253467038
+- Kmart Shopping Cart by akeg (CC BY-SA 2.0) — https://www.flickr.com/photos/88583398@N00/417523617
+- shopping cart by hospi-table (CC BY-SA 2.0) — https://www.flickr.com/photos/10800393@N06/2793291799
+- Man\_smiling\_while\_pushing\_shopping\_cart\_down\_home\_goods\_store\_aisle.jpg by Shixart1985 (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Man_smiling_while_pushing_shopping_cart_down_home_goods_store_aisle.jpg
+- Full\_shopping\_cart\_(seen\_from\_above).jpg by Sander van der Wel from Netherlands (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Full_shopping_cart_(seen_from_above).jpg
+- Credit-cards.jpg by Lotus Head from Johannesburg, Gauteng, South Africa (CC BY-SA 2.5) — https://commons.wikimedia.org/wiki/File:Credit-cards.jpg
+- Sears Credit Card by JeepersMedia (CC BY 2.0) — https://www.flickr.com/photos/39160147@N03/15042895859
+- Left\_hand\_traffic\_bike\_lane.jpg by Hannah.Ferrier (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Left_hand_traffic_bike_lane.jpg
+- Tire\_tread.jpg (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Tire_tread.jpg
+- Used Tire Tread by TireZoo (CC BY 2.0) — https://www.flickr.com/photos/48722259@N02/5690529503
+- tire tread 2 by echoforsberg (CC BY 2.0) — https://www.flickr.com/photos/7876691@N03/2569188243
+- Close\_view\_of\_worn\_tire\_showing\_tread\_patterns\_and\_dirt\_in\_a\_garage\_setting.jpg by Shixart1985 (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Close_view_of_worn_tire_showing_tread_patterns_and_dirt_in_a_garage_setting.jpg
+- Tread\_Wear\_Indicators\_of\_Studless\_Tire.jpg by VVVN (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Tread_Wear_Indicators_of_Studless_Tire.jpg
+- All\_Season\_tire\_tread\_and\_code.JPG by Ken T1381 (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:All_Season_tire_tread_and_code.JPG
+- Street\_sign,\_Hampstead\_Gardens\_NW11\_-\_geograph.org.uk\_-\_1678301.jpg by Robin Sones (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Street_sign,_Hampstead_Gardens_NW11_-_geograph.org.uk_-_1678301.jpg
+- Goleta Street Name Sign by Oran Viriyincy (CC BY-SA 2.0) — https://www.flickr.com/photos/95482862@N00/7524789956
+- HenrykBatutaHoaxRealStreetName.jpg by Anniolek (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:HenrykBatutaHoaxRealStreetName.jpg
+- Muffin\_Tin\_Monday\_-\_April\_Showers\_Bring\_May\_Flowers\_(8689654583).jpg by Melissa (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Muffin_Tin_Monday_-_April_Showers_Bring_May_Flowers_(8689654583).jpg
+- Cranberry-Mohn\_Muffins\_in\_baking\_tray.jpg by Katrin Morenz (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Cranberry-Mohn_Muffins_in_baking_tray.jpg
+- Cauliflower Pizza Bites, Mini-muffin tin by Tatiana12 (CC BY 2.0) — https://www.flickr.com/photos/98826299@N00/7774910340
+- Toiletpapier\_(Gobran111).jpg by Brandon Blinkenberg (CC BY 2.5) — https://commons.wikimedia.org/wiki/File:Toiletpapier_(Gobran111).jpg
+- Toilet\_Paper\_Roll.jpg by Kevin Payravi (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Toilet_Paper_Roll.jpg
+- Screw threads by Mauro Cateb (CC BY 2.0) — https://www.flickr.com/photos/69102917@N06/8445114214
+- Different Thread Types Update.jpg by ChristophRoser. Please credit "Christoph Roser at AllAboutLean.com". (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Different_Thread_Types_Update.jpg
+- Paper Clip Wasteland - 27/365 by Jamiesrabbits (CC BY 2.0) — https://www.flickr.com/photos/38389073@N04/4312403773
+- Bakelite 'Genuine Pin Master' magnet with paper clips by EraPhernalia Vintage . . . \[''playin' hook-y''\] ;o (CC BY-SA 2.0) — https://www.flickr.com/photos/28510393@N07/3087658845
+- Eight\_drinking\_straws\_(4273846588).jpg by Horia Varlan from Bucharest, Romania (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Eight_drinking_straws_(4273846588).jpg
+- Groups of drinking straws sorted by colors by Horia Varlan (CC BY 2.0) — https://www.flickr.com/photos/10361931@N06/4273102419
+- Brightly colored drinking straws with flexible head by Horia Varlan (CC BY 2.0) — https://www.flickr.com/photos/10361931@N06/4273103337
+- Household\_mini\_grid\_switchboard,\_eliminating\_the\_need\_for\_extensive\_household\_wiring.jpg by Christopher Greacen (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Household_mini_grid_switchboard,_eliminating_the_need_for_extensive_household_wiring.jpg
+- 22\_sockets\_grey-painted\_wall\_Three\_black\_electric\_power\_cables\_plugged\_in,\_school\_building\_in\_Lillesand,\_Norway.\_22\_stikkontkater\_på\_gråmalt\_vegg\_med\_tre\_svarte\_strømkabler\_(2024)\_IMG\_8882.jpg by Wolfmann (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:22_sockets_grey-painted_wall_Three_black_electric_power_cables_plugged_in,_school_building_in_Lillesand,_Norway._22_stikkontkater_på_gråmalt_vegg_med_tre_svarte_strømkabler_(2024)_IMG_8882.jpg
+- Cheater\_plug\_edited.jpg by Cheater\_plug.jpg: PleaseStand derivative work: PleaseStand (talk) (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Cheater_plug_edited.jpg
+- Wedding Table Knifes and Forks Outdoors by marketingthechange (CC BY 2.0) — https://www.flickr.com/photos/132039626@N08/30359095262
+- Formal\_Place\_Setting.jpg by Hopefulromntic (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Formal_Place_Setting.jpg
+- Palais-Niel\_couverts.JPG by Traumrune (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Palais-Niel_couverts.JPG
+- Yogurt - Tiny measuring spoons by grongar (CC BY 2.0) — https://www.flickr.com/photos/70757891@N00/5528860245
+- Measuring Spoons by aMichiganMom (CC BY 2.0) — https://www.flickr.com/photos/11172002@N05/4601000979
+- Measuring Spoon by Judy Gallagher (CC BY 2.0) — https://www.flickr.com/photos/52450054@N04/43965011215
+- Detail\_of\_a\_bicycle\_handlebar\_and\_pink\_bell\_amidst\_hundreds\_of\_parked\_bicycles,\_Central\_Station,\_Amsterdam,\_Netherlands\_julesvernex2.jpg by Jules Verne Times Two (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Detail_of_a_bicycle_handlebar_and_pink_bell_amidst_hundreds_of_parked_bicycles,_Central_Station,_Amsterdam,_Netherlands_julesvernex2.jpg
+- Spalding\_Building,\_Portland,\_Oregon\_(2012)\_-\_15.JPG by Another Believer (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Spalding_Building,_Portland,_Oregon_(2012)_-_15.JPG
+- Elevator motor in operation.webm by Darklanlan (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Elevator_motor_in_operation.webm
+- Banknotes, money, cash by HowardLake (CC BY-SA 2.0) — https://www.flickr.com/photos/53941041@N00/4550761104
+- Canadian $20 banknote folded into heart by nayukim (CC BY 2.0) — https://www.flickr.com/photos/41506934@N03/4274605855
+- Old Elevator Button by dejankrsmanovic (CC BY 2.0) — https://www.flickr.com/photos/155403590@N07/40125399803
+- Elevator buttons by Dushan and Miae (CC BY-SA 2.0) — https://www.flickr.com/photos/97304820@N00/4553402486
+- Elevator Buttons by smaedli (CC BY 2.0) — https://www.flickr.com/photos/75264768@N00/3425741574
+- Creaky old cash register by insouciance (CC BY-SA 2.0) — https://www.flickr.com/photos/66901607@N00/4538886934
+- Sub cash register by Franck BLAIS (CC BY-SA 2.0) — https://www.flickr.com/photos/66971402@N04/7569786950
+- 2022-12-19\_Cash\_register\_Oka.jpg by Maksym Kozlenko (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:2022-12-19_Cash_register_Oka.jpg
+- Cash Register Waldo by cdsessums (CC BY-SA 2.0) — https://www.flickr.com/photos/53313745@N00/5647246147
+- Light-bulbs.jpg by Hidalgo944 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Light-bulbs.jpg
+- Lightbulb moment by janetmck (CC BY 2.0) — https://www.flickr.com/photos/43188309@N00/4286263456
+- Modern\_British\_LED\_Traffic\_Light.jpg by Unisouth (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Modern_British_LED_Traffic_Light.jpg
+- Green-over-red\_traffic\_light\_in\_Syracuse\_NY.jpeg by Dough4872 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Green-over-red_traffic_light_in_Syracuse_NY.jpeg
+- Traffic\_Signal\_and\_Pedestrian\_Crossing\_in\_Dreyersdal,\_Cape\_Town.jpg by Husskeyy (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Traffic_Signal_and_Pedestrian_Crossing_in_Dreyersdal,_Cape_Town.jpg
+- Strange traffic lights by Tilemahos Efthimiadis (CC BY 2.0) — https://www.flickr.com/photos/64379474@N00/2788591239
+- Stairs by foilman (CC BY-SA 2.0) — https://www.flickr.com/photos/24484507@N00/8627972703
+- Bulguksa\_temple\_entrance\_gate\_stairs\_flower\_bed\_and\_blue\_sky\_in\_Gyeongju\_South\_Korea.jpg by Basile Morin (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Bulguksa_temple_entrance_gate_stairs_flower_bed_and_blue_sky_in_Gyeongju_South_Korea.jpg
+- Museu\_de\_Arte\_Moderna\_da\_Bahia\_Solar\_do\_Unhão\_Escada\_Helicoidal\_2021-8567\_01.jpg by Paul R. Burley (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Museu_de_Arte_Moderna_da_Bahia_Solar_do_Unhão_Escada_Helicoidal_2021-8567_01.jpg
+- City Java smoothies by khawkins04 (CC BY 2.0) — https://www.flickr.com/photos/49978063@N00/5476580591
+- City Java smoothies by khawkins04 (CC BY 2.0) — https://www.flickr.com/photos/49978063@N00/5476581237
+- Inside of telephone keypad by GuidoB (CC BY-SA 3.0) — https://commons.wikimedia.org/w/index.php?curid=15217652
+- FOMA\_P701iD\_keys\_layout.JPG by No machine-readable author provided. Mobile wiki~commonswiki assumed (based on copyright claims). (CC BY 2.5) — https://commons.wikimedia.org/wiki/File:FOMA_P701iD_keys_layout.JPG
+- ATTtelephone-large.jpg (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:ATTtelephone-large.jpg
+- Telephone\_number\_pad\_2.jpeg by Jonathan Ah Kit (CC BY-SA 2.5) — https://commons.wikimedia.org/wiki/File:Telephone_number_pad_2.jpeg
+- Victorian\_pillar\_box,\_Rothesay.jpg by DeFacto (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Victorian_pillar_box,_Rothesay.jpg
+- Bedford Rascal (1987) and Type K Pillar Box (1979) by The Postal Museum (CC BY-SA 2.0) — https://www.flickr.com/photos/35141800@N08/3418187638
+- The East Gate and St Peter's Chapel - Warwick - red K6 Telephone Kiosk and red Pillar Box by ell brown (CC BY 2.0) — https://www.flickr.com/photos/39415781@N06/3644246349
+- Austin\_Maestro\_500\_City\_diesel\_D566TCW\_Mail\_van\_with\_Pillars.jpg by kitmasterbloke (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Austin_Maestro_500_City_diesel_D566TCW_Mail_van_with_Pillars.jpg
+- P&T\_PILLAR\_BOX\_PAINTED\_RED\_(CELEBRATING\_THE\_1916\_EASTER\_RISING)-112762\_(25958883682).jpg by William Murphy from Dublin, Ireland (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:P&T_PILLAR_BOX_PAINTED_RED_(CELEBRATING_THE_1916_EASTER_RISING)-112762_(25958883682).jpg
+- SR1 18: Albion Place, Sunderland: Pillar box with stamp machine by Post Box (CC BY 2.0) — https://www.flickr.com/photos/32159881@N03/3281296581
+- British-era\_letter\_box\_in\_Shimla,\_India.jpg by Utkarshraj Atmaram (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:British-era_letter_box_in_Shimla,_India.jpg
+- Crosswalk sign by robinsonsmay (CC BY 2.0) — https://www.flickr.com/photos/25103209@N06/2746063982
+- The Crosswalk by tomscy2000 (CC BY 2.0) — https://www.flickr.com/photos/9118511@N04/13381875775
+- Corner\_of\_E\_7th\_Ave\_and\_N\_16th\_St\_in\_downtown\_Ybor\_City,\_Tampa,\_Florida,\_at\_night\_on\_28\_October\_2023.jpg by MatthewHoobin (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Corner_of_E_7th_Ave_and_N_16th_St_in_downtown_Ybor_City,_Tampa,_Florida,_at_night_on_28_October_2023.jpg
+- Coil\_plastic\_and\_metal\_zippers.jpg by Woodbine9 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Coil_plastic_and_metal_zippers.jpg
+- Zipper by kla4067 (CC BY-SA 2.0) — https://www.flickr.com/photos/84263554@N00/49923618247
+- ZipperCowHitch.jpg by Siehe-auch-Löscher (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:ZipperCowHitch.jpg
+- Most\_rowerowy\_-\_Środula,\_Sosnowiec.jpg by Krzysztof Popławski (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Most_rowerowy_-_Środula,_Sosnowiec.jpg
+- Bicycle path signs @ Lund by bjaglin (CC BY 2.0) — https://www.flickr.com/photos/38074325@N00/684356680
+- NUNAVUT, CANADA FUTURE PROPOSED SAMPLE license plate by woody1778a (CC BY-SA 2.0) — https://www.flickr.com/photos/9816248@N03/2763409417
+- THE WORLD'S MOST EXPENSIVE LICENSE PLATE, Abu Dhabi UAE --- REPLICA by woody1778a (CC BY-SA 2.0) — https://www.flickr.com/photos/9816248@N03/3213522133
+- 1975\_Alberta\_license\_plate\_1-071\_antique\_auto.jpg by Woody1778 from Edmonton, Canada (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:1975_Alberta_license_plate_1-071_antique_auto.jpg
+- European\_Union\_EUR\_license\_plate\_1960-1975.jpg by worldlicenseplates.com (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:European_Union_EUR_license_plate_1960-1975.jpg
+- DSC01033\_Polizia\_di\_Stato\_Vehicle\_Registration\_Plate\_on\_an\_Alfa\_Romeo\_Giulia.jpg by Aciarium (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:DSC01033_Polizia_di_Stato_Vehicle_Registration_Plate_on_an_Alfa_Romeo_Giulia.jpg
+- How to Tie the Necktie by Mike Licht, NotionsCapital.com (CC BY 2.0) — https://www.flickr.com/photos/9106303@N05/7710577160
+- Necktie\_Atlantic\_knot.jpg by No machine-readable author provided. Pumbaa80 assumed (based on copyright claims). (CC BY-SA 2.5) — https://commons.wikimedia.org/wiki/File:Necktie_Atlantic_knot.jpg
+- 5.6k ohm resistor necktie by Bekathwia (CC BY-SA 2.0) — https://www.flickr.com/photos/23243094@N00/5947832571
+- As\_Within\_So\_Without\_(216977055).jpeg by Andrew Mcmillan (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:As_Within_So_Without_(216977055).jpeg
+- Canned Foods by Southern Foodways Alliance (CC BY 2.0) — https://www.flickr.com/photos/25257922@N07/5124319668
+- Can\_of\_Mead's\_Dextri-Maltose\_milkreplacement.JPG by KingaNBM (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Can_of_Mead's_Dextri-Maltose_milkreplacement.JPG
+- Konserven / Canned food by 7C0 (CC BY 2.0) — https://www.flickr.com/photos/39453974@N04/49608590172
+- Boer\_war\_ration\_tin\_(FindID\_216813).jpg by Exeter City Council, Danielle Wootton, 2008-05-07 16:42:38 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Boer_war_ration_tin_(FindID_216813).jpg
+- Schaefer\_beer\_can\_Puerto\_Rico.jpg by Surfsupusa (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Schaefer_beer_can_Puerto_Rico.jpg
+- Livorno\_-\_Hotel\_Palazzo\_-\_2025-09-29\_20-09-38\_001.jpg by Terragio67 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Livorno_-_Hotel_Palazzo_-_2025-09-29_20-09-38_001.jpg
+- toilet by dirtyboxface (CC BY 2.0) — https://www.flickr.com/photos/92889665@N00/8791419839
+- Flush\_toilet\_bowl.jpg by Dee.lite (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Flush_toilet_bowl.jpg
+- Dishwasher\_with\_dishes.JPG by No machine-readable author provided. Piotrus assumed (based on copyright claims). (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Dishwasher_with_dishes.JPG
+- A small Dishwasher för the small household washes dirty dishes clean.webm by Erik Pålsson; Photo and recording Helena Törnqvist (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:A_small_Dishwasher_för_the_small_household_washes_dirty_dishes_clean.webm
+- Dishwasher by Editor B (CC BY 2.0) — https://www.flickr.com/photos/11018968@N00/2083900935
+- Blue Ceramic Tiles by D-Stanley (CC BY 2.0) — https://www.flickr.com/photos/79721788@N00/19838198570
+- Kronenkorken\_01\_KMJ.jpg by KMJ Original uploader was KMJ at de.wikipedia (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Kronenkorken_01_KMJ.jpg
+- End\_Cap\_(231155443).jpeg by Michel Ange Patry (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:End_Cap_(231155443).jpeg
+- Epic Beer Bottle Cap by epicbeer (CC BY 2.0) — https://www.flickr.com/photos/48089112@N00/2854340861
+- Kopenhagen\_(DK),\_Bahnhof\_--\_2017\_--\_1672\_(bw).jpg by Dietmar Rabich (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Kopenhagen_(DK),_Bahnhof_--_2017_--_1672_(bw).jpg
+- out of the frying pan by waferboard (CC BY 2.0) — https://www.flickr.com/photos/60944931@N00/4153245628
+- Out\_of\_the\_Frying\_Pan\_-\_Flickr\_-\_docoverachiever.jpg by Sheila Sund from Salem, United States (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Out_of_the_Frying_Pan_-_Flickr_-_docoverachiever.jpg
+- Blintzes in frying pan by Andrevan (CC BY-SA 2.5) — https://commons.wikimedia.org/w/index.php?curid=313026
+- Screw by LawPrieR (CC BY 2.0) — https://www.flickr.com/photos/36524847@N03/3713441792
+- Barbieri\_-\_ViaSophia25668.jpg by Mcg2132 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Barbieri_-_ViaSophia25668.jpg
+- Restaurant 'Marmita' by Klearchos Kapoutsis (CC BY 2.0) — https://www.flickr.com/photos/8383084@N06/2393393837
+- Lae\_Lay\_Grill\_restaurant\_-\_kitchen.jpg by kallerna (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Lae_Lay_Grill_restaurant_-_kitchen.jpg
+- Alians\_PL,TypicalswitchgearinelectricnetworksinthehousingstockoflocalcommunesinPoland,02-07-2021.jpg by Alians PL (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Alians_PL,TypicalswitchgearinelectricnetworksinthehousingstockoflocalcommunesinPoland,02-07-2021.jpg
+- DIY\_small\_light\_switch.jpg by Dmitry G (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:DIY_small_light_switch.jpg
+- 'Twin\_and\_Earth'\_electrical\_cable.\_BS\_6004,\_6mm².jpg by Alistair1978 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:'Twin_and_Earth'_electrical_cable._BS_6004,_6mm².jpg
+- TyreSour-Lebanon\_PowerCables\_RomanDeckert06112019.jpg by RomanDeckert (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:TyreSour-Lebanon_PowerCables_RomanDeckert06112019.jpg
+- Alternative\_Line\_Cord\_Connection.JPG by Jstapko (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Alternative_Line_Cord_Connection.JPG
+- Persian keyboard layout, unshifted by Behdad Esfahbod (CC BY 2.0) — https://www.flickr.com/photos/94465595@N00/41843368
+- Colemak keyboard layout by sermoa (CC BY-SA 2.0) — https://www.flickr.com/photos/89953410@N00/6702391735
+- Typing\_example.ogv by NotFromUtrecht (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Typing_example.ogv
+- Backlit\_keyboard\_2.jpg by Oboy2009 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Backlit_keyboard_2.jpg
+- recycle bin by atramos (CC BY 2.0) — https://www.flickr.com/photos/14818554@N05/6448517855
+- A\_Blue\_Recycling\_Bin\_with\_Wheels.jpg by Gogerr (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:A_Blue_Recycling_Bin_with_Wheels.jpg
+- Neat recycling bins by Dano (CC BY 2.0) — https://www.flickr.com/photos/36101697408@N01/441228222
+- Glass\_salvage\_containers\_Bořetice\_2020.jpg by Tadeáš Bednarz (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Glass_salvage_containers_Bořetice_2020.jpg
+- Blue\_and\_green\_bins,\_purple\_wall.jpg by Ser Amantio di Nicolao (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Blue_and_green_bins,_purple_wall.jpg
+- Fragile\_Packaging\_left\_in\_blue\_recycling\_bin.jpg by Meanwell Packaging (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Fragile_Packaging_left_in_blue_recycling_bin.jpg
+- Lincoln\_Park,\_Michigan\_blue\_household\_recycling\_bin.jpg by viiticus (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Lincoln_Park,_Michigan_blue_household_recycling_bin.jpg
+- Trash\_bin\_in\_Paris.jpg by Daniel Stockman (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Trash_bin_in_Paris.jpg
+- Picking up the garbage bags-Tamanna by nist6ss (CC BY-SA 2.0) — https://www.flickr.com/photos/53771866@N05/6352848845
+- Lawrence Road - Garbage Bags by Alan Stanton (CC BY-SA 2.0) — https://www.flickr.com/photos/53921762@N00/8613759748
+- Garbage Bags in Alley by Oran Viriyincy (CC BY-SA 2.0) — https://www.flickr.com/photos/95482862@N00/5942232708
+- 'Garbage - Bag' by Klearchos Kapoutsis (CC BY 2.0) — https://www.flickr.com/photos/8383084@N06/3383598324
+- Garbage\_outside\_the\_rear\_of\_Rigby\_House.jpg by Alan Stanton (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Garbage_outside_the_rear_of_Rigby_House.jpg
+- Kiloware.JPG by Michael Sander (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Kiloware.JPG
+- Aureus\_Florianus\_Ticinum\_(obverse\_head).jpg by Numismatica Ars Classica NAC AG (CC BY-SA 3.0 ch) — https://commons.wikimedia.org/wiki/File:Aureus_Florianus_Ticinum_(obverse_head).jpg
+- Islamic sliver coin 'Derham' by alazaat (CC BY 2.0) — https://www.flickr.com/photos/21543443@N00/6845259489
+- 50\_Paise\_Coin\_Tails.jpg by Blazeboy124 (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:50_Paise_Coin_Tails.jpg
+- Euro Coins by Images\_of\_Money (CC BY 2.0) — https://www.flickr.com/photos/59937401@N07/5929574223
+- Value\_1000\_-\_Wang\_Mang\_Spade\_Money\_(Hartill\_9.29D)\_-\_Scott\_Semans.jpg by Scott Semans (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Value_1000_-_Wang_Mang_Spade_Money_(Hartill_9.29D)_-_Scott_Semans.jpg
+- 1762\_Kgr.\_Dänemark\_Frederik\_V.\_12\_Mk..JPG by DJM (talk) 18:46, 7 October 2010 (UTC) (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:1762_Kgr._Dänemark_Frederik_V._12_Mk..JPG
+- Electrum\_(Coins\_of\_Lydia).jpg by KKPCW (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Electrum_(Coins_of_Lydia).jpg
+- Four\_sets\_of\_Gold\_Coins\_of\_Vima\_Kadphises.jpg by Ancient Art (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Four_sets_of_Gold_Coins_of_Vima_Kadphises.jpg
+- 1.\_Iron\_Age\_Coin,\_Uninscribed\_gold\_stater\_(FindID\_715796).jpg by Berkshire Archaeology, David Williams, 2015-04-14 10:23:28 (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:1._Iron_Age_Coin,_Uninscribed_gold_stater_(FindID_715796).jpg
+- Assorted\_forks.jpg (CC BY-SA 3.0 us) — https://commons.wikimedia.org/wiki/File:Assorted_forks.jpg
+- Leonardos 706 Plates Pizza Wine Glasses Table Fork Knife by cdsessums (CC BY 2.0) — https://www.flickr.com/photos/53313745@N00/4553456984
+- Table fork by Smudge 9000 (CC BY-SA 2.0) — https://www.flickr.com/photos/7599112@N08/12821312865
+- Recycling\_Symbol\_among\_Cardboard\_and\_Paper\_Packaging.jpg by Meanwell Packaging (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Recycling_Symbol_among_Cardboard_and_Paper_Packaging.jpg
+- Recycle symbol stamped on cardboard by Creativity103 (CC BY 2.0) — https://www.flickr.com/photos/36894712@N04/25094993191
+- recycle these cups by e-magic (CC BY 2.0) — https://www.flickr.com/photos/52137170@N00/1785924078
+- Recycle\_4\_Egypt.jpg by Recycle 4 Egypt (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Recycle_4_Egypt.jpg
+- Recycling\_codes\_on\_products.jpg by Z22 (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Recycling_codes_on_products.jpg
+- Recyclable\_Cardboard\_Packaging.jpg by Meanwell Packaging (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Recyclable_Cardboard_Packaging.jpg
+- Black and white composting symbol.jpg by 2muddyboots (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Black_and_white_composting_symbol.jpg
+- Composting\_symbol.jpg by 2muddyboots (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Composting_symbol.jpg
+- Bike\_Lane\_Painted\_Buffer.jpg by Hannah.Ferrier (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Bike_Lane_Painted_Buffer.jpg
+- Traffic cones by oatsy40 (CC BY 2.0) — https://www.flickr.com/photos/68089229@N06/22654103994
+- Car\_covered\_in\_traffic\_cones.jpg by CauliflowerMoon (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Car_covered_in_traffic_cones.jpg
+- DZ3\_1035\_Neon-lit\_entrance\_to\_Sky\_Music\_Restaurant\_Pub\_at\_night\_in\_Pattaya\_with\_empty\_streets\_and\_parked\_motorcycles.jpg by PattayaPatrol (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:DZ3_1035_Neon-lit_entrance_to_Sky_Music_Restaurant_Pub_at_night_in_Pattaya_with_empty_streets_and_parked_motorcycles.jpg
+- DSC\_9745\_A\_woman\_sits\_on\_the\_curb\_beside\_a\_traffic\_cone\_resting\_with\_a\_bag\_at\_her\_side\_on\_a\_quiet\_city\_street.jpg by PattayaPatrol (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:DSC_9745_A_woman_sits_on_the_curb_beside_a_traffic_cone_resting_with_a_bag_at_her_side_on_a_quiet_city_street.jpg
+- Coliseum\_Street\_at\_St\_Andrew\_with\_Cones,\_New\_Orleans\_January\_2023.jpg by Infrogmation of New Orleans (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Coliseum_Street_at_St_Andrew_with_Cones,_New_Orleans_January_2023.jpg
+- DFC\_4393\_A\_traffic\_officer\_in\_reflective\_gear\_directs\_vehicles\_along\_a\_palm-lined\_street\_as\_evening\_falls\_and\_market\_stalls\_light\_up\_on\_the\_sidewalk.jpg by PattayaPatrol (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:DFC_4393_A_traffic_officer_in_reflective_gear_directs_vehicles_along_a_palm-lined_street_as_evening_falls_and_market_stalls_light_up_on_the_sidewalk.jpg
+- QWERTY\_keyboard.jpg by MichaelMaggs (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:QWERTY_keyboard.jpg
+- QWERTY by bennylin0724 (CC BY 2.0) — https://www.flickr.com/photos/78433558@N00/241779680
+- QWERTY by grace\_kat (CC BY-SA 2.0) — https://www.flickr.com/photos/13835286@N06/3195740047
+- 20230213\_Door\_Handle\_Steige\_Mariahilf\_Passau.jpg by Flocci Nivis (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:20230213_Door_Handle_Steige_Mariahilf_Passau.jpg
+- Dare\_To\_Enter\_(14865327162).jpg by darkday from Brisbane, Australia (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Dare_To_Enter_(14865327162).jpg
+- DSC\_7211\_An\_older\_man\_in\_a\_blue\_polo\_shirt\_reviews\_a\_menu\_or\_wine\_list\_at\_a\_candlelit\_restaurant\_table\_set\_with\_wine\_glasses\_and\_a\_bottle.jpg by PattayaPatrol (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:DSC_7211_An_older_man_in_a_blue_polo_shirt_reviews_a_menu_or_wine_list_at_a_candlelit_restaurant_table_set_with_wine_glasses_and_a_bottle.jpg
+- Bio restaurant menu by blmurch (CC BY 2.0) — https://www.flickr.com/photos/82439748@N00/315863311
+- Streetlight; Mdina, Malta by foxypar4 (CC BY 2.0) — https://www.flickr.com/photos/43145783@N00/3092539017
+- La farola - The streetlight by Rob Unreall (CC BY-SA 2.0) — https://www.flickr.com/photos/33881710@N06/4065275261
+- Paper\_towel.jpg by Santeri Viinamäki (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Paper_towel.jpg
+- Bay West Paper Towel Dispenser by nickgraywfu (CC BY-SA 2.0) — https://www.flickr.com/photos/35034365374@N01/300391064
+- Paper Towels - August 4th, 2011 by Mark Turnauckas (CC BY 2.0) — https://www.flickr.com/photos/30329962@N08/6009596457
+- Home\_kitchen\_details\_June\_2023\_-\_corner\_by\_kitchen\_sink\_with\_filtered\_water\_and\_towels.jpg by Infrogmation of New Orleans (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Home_kitchen_details_June_2023_-_corner_by_kitchen_sink_with_filtered_water_and_towels.jpg
+- Americana\_-\_Paper\_Towel\_Dispenser.jpg by nickgraywfu (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Americana_-_Paper_Towel_Dispenser.jpg
+- Braid\_and\_foil\_shielded\_usb\_cable.jpg by Anordal (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Braid_and_foil_shielded_usb_cable.jpg
+- USB handshake by 24oranges.nl (CC BY-SA 2.0) — https://www.flickr.com/photos/30091649@N06/2813902906
+- Close-up\_angled\_top\_surface\_of\_a\_Universal\_Serial\_Bus\_(USB).jpg by Piotr Frydecki (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Close-up_angled_top_surface_of_a_Universal_Serial_Bus_(USB).jpg
+- Charging\_a\_laptop\_with\_a\_USB\_cable\_on\_a\_wooden\_table\_in\_a\_cozy\_environment\_during\_daytime.jpg by Shixart1985 (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Charging_a_laptop_with_a_USB_cable_on_a_wooden_table_in_a_cozy_environment_during_daytime.jpg
+- ASRock\_USB-3\_Type-C\_PCIe-card.jpg by Daniel Aleksandersen (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:ASRock_USB-3_Type-C_PCIe-card.jpg
+- Two\_USB-C\_connectors\_being\_held.jpg by Logant547 (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Two_USB-C_connectors_being_held.jpg
+- Faraday fire alarm pull station Vintage by Elyse Horvath (CC BY-SA 2.0) — https://www.flickr.com/photos/101034470@N04/48951949122
+- Faraday\_dual-action\_pull\_station.jpg by Ben Schumin (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Faraday_dual-action_pull_station.jpg
+- Fire-Alarm-System-Devices.jpg by CaptainChris2019 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Fire-Alarm-System-Devices.jpg
+- Fire\_alarm\_-Ikebukuro.jpg by midorisyu (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Fire_alarm_-Ikebukuro.jpg
+- Wheelock\_mt2.jpg by Edit: ZooFari Original: Ben Schumin (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Wheelock_mt2.jpg
+- Fire Alarm by seabamirum (CC BY 2.0) — https://www.flickr.com/photos/59323989@N00/2591034504
+- Smoke\_detector.JPG by Tumi-1983 (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Smoke_detector.JPG
+- The Cross Connection of Metre Gauge and Standard Gauge Railway (The Documentary of Yunnan Railways) by AC02 Works (CC BY-SA 2.0) — https://www.flickr.com/photos/113550278@N08/12423351743
+- Belair\_Railway\_Line\_+\_ARTC\_Standard\_Gauge\_@\_Sleeps\_Hill\_near\_Panorama\_20260731-100729.jpg by RegionVisitor90 (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Belair_Railway_Line_+_ARTC_Standard_Gauge_@_Sleeps_Hill_near_Panorama_20260731-100729.jpg
+- -80\_Rio\_Grande\_River-\_Track\_Measurement\_(4514211746).jpg by Jim Woods (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:-80_Rio_Grande_River-_Track_Measurement_(4514211746).jpg
+- 2000s\_Titleist\_PTS\_So\_Lo\_golf\_ball\_number\_1\_made\_in\_USA.jpg by R. Henrik Nilsson (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:2000s_Titleist_PTS_So_Lo_golf_ball_number_1_made_in_USA.jpg
+- 2020s\_Partille\_Golfklubb\_Range\_XOne\_golf\_ball\_green.jpg by R. Henrik Nilsson (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:2020s_Partille_Golfklubb_Range_XOne_golf_ball_green.jpg
+- 2005\_Top\_Flite\_Complete\_Distance\_two\_piece\_golf\_ball\_with\_ionomer\_cover\_made\_in\_USA.jpg by R. Henrik Nilsson (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:2005_Top_Flite_Complete_Distance_two_piece_golf_ball_with_ionomer_cover_made_in_USA.jpg
+- Electric light by Alan Cleaver (CC BY 2.0) — https://www.flickr.com/photos/11121568@N06/2279694390
+- Cyclist\_traffic\_light\_at\_the\_oval.jpg by Secretlondon (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Cyclist_traffic_light_at_the_oval.jpg
+- LED\_traffic\_light\_on\_red.jpg by Kevin Payravi (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:LED_traffic_light_on_red.jpg
+- Intersection\_of\_Bloxham\_and\_Adams,\_Tallahassee.jpg by The Bushranger (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Intersection_of_Bloxham_and_Adams,_Tallahassee.jpg
+- Amber\_traffic\_signal,\_Stamford\_Road,\_Singapore\_-\_20111210-02.jpg by Jacklee. (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Amber_traffic_signal,_Stamford_Road,_Singapore_-_20111210-02.jpg
+- Fort\_Worth,\_TX\_Traffic\_Light\_-\_Berry\_Street\_and\_Evans\_Avenue.JPG by Dark Serge at en.wikipedia (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Fort_Worth,_TX_Traffic_Light_-_Berry_Street_and_Evans_Avenue.JPG
+- BywaterCurbGutterMay07A.jpg by Infrogmation, New Orleans (CC BY 2.5) — https://commons.wikimedia.org/wiki/File:BywaterCurbGutterMay07A.jpg
+- Yes - Plastic bottles by Montgomery Cty Division of Solid Waste Services (CC BY 2.0) — https://www.flickr.com/photos/24222570@N05/2735667602
+- Plastic bottles pollution in the ocean.webm by Surfrider Foundation Europe (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Plastic_bottles_pollution_in_the_ocean.webm
+- Bottle\_of\_milk.jpg by Rlsheehan (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Bottle_of_milk.jpg
+- Plastic bottles-Tamanna by nist6ss (CC BY-SA 2.0) — https://www.flickr.com/photos/53771866@N05/6350418468
+- Telephone-booth-AWS-7.jpg by Grzegorz W. Tężycki (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Telephone-booth-AWS-7.jpg
+- Public\_Phone\_Booth\_-\_Kashmar\_(1).JPG by Sonia Sevilla (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Public_Phone_Booth_-_Kashmar_(1).JPG
