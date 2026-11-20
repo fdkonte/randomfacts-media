@@ -1,0 +1,61 @@
+# Image credits — 39 Random Facts — Insects, Ancient History, Ancient Egypt & More
+
+Video: https://www.youtube.com/watch?v=eD1FFSZJLCg
+
+Every work below appears in the video and is used under the licence shown (title, author, licence, source). Licence texts: https://creativecommons.org/licenses/
+
+- firefly 6576 by art farmer (CC BY-SA 2.0) — https://www.flickr.com/photos/16849297@N00/186047460
+- Fireflies and Star Trails No. 3 by ikewinski (CC BY 2.0) — https://www.flickr.com/photos/73449134@N04/14469259542
+- Saddleback Caterpillar (Sibine stimulea) by Jim, the Photographer (CC BY 2.0) — https://www.flickr.com/photos/72744295@N00/9697644240
+- Antlion, Occoquan Bay National Wildlife Refuge, Woodbridge, Virginia by Judy Gallagher (CC BY 2.0) — https://www.flickr.com/photos/52450054@N04/35577532402
+- Convolvulus\_hawk-moth\_(Agrius\_convolvuli)\_2.jpg by Charles J. Sharp (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Convolvulus_hawk-moth_(Agrius_convolvuli)_2.jpg
+- Hummingbird hawk-moth on red valerian by stanzebla (CC BY-SA 2.0) — https://www.flickr.com/photos/92823399@N07/52479506245
+- Cicada exoskeleton - tokyo area - aug 15 2021.webm by Nesnad (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Cicada_exoskeleton_-_tokyo_area_-_aug_15_2021.webm
+- Oecophylla smaragdina - Weaver ant by Rushen! (CC BY-SA 2.0) — https://www.flickr.com/photos/87521289@N07/8487845936
+- Red Weaver Ant Oecophylla smaragdina by brian.gratwicke (CC BY 2.0) — https://www.flickr.com/photos/19731486@N07/3596013393
+- Velvet Worm (Peripatopsidae) by caspar s (CC BY 2.0) — https://www.flickr.com/photos/60172932@N06/13191132325
+- Australian Leaf Insect, portrait by backpackphotography (CC BY 2.0) — https://www.flickr.com/photos/41096997@N00/288231870
+- Aus. Leaf Insect (Macleay's Spectre or Extatosoma tiaratum) by backpackphotography (CC BY 2.0) — https://www.flickr.com/photos/41096997@N00/288231872
+- Ohrenkneifer (Earwig) by schoschie (CC BY 2.0) — https://www.flickr.com/photos/87569910@N00/193287094
+- Earwig by WesDigital (CC BY-SA 2.0) — https://www.flickr.com/photos/52425888@N00/315761926
+- Water\_strider\_(Gerridae\_sp.)\_Makiling.jpg by Charles J. Sharp (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Water_strider_(Gerridae_sp.)_Makiling.jpg
+- Pond Skater by pete. \#hwcp (CC BY 2.0) — https://www.flickr.com/photos/13497267@N04/44277439491
+- Dung Beetle Rolling by Lennart Tange (CC BY 2.0) — https://www.flickr.com/photos/77856868@N04/7236316916
+- The Common Housefly at Mount Faber, Singapore by williamcho (CC BY-SA 2.0) — https://www.flickr.com/photos/84493444@N00/1048786061
+- Housefly Macro! (Explored!) by HolleyandChris (CC BY 2.0) — https://www.flickr.com/photos/69552755@N03/8720247087
+- Male Phantom midge, I think by andybadger (CC BY-SA 2.0) — https://www.flickr.com/photos/89396233@N00/6831504176
+- Chaoborus punctipennis P1290021a by xpda (CC BY-SA 4.0) — https://commons.wikimedia.org/w/index.php?curid=64817333
+- Scorpionfly (Panorpa communis or P. germanica) ♀ by Peter O'Connor aka anemoneprojectors (CC BY-SA 2.0) — https://www.flickr.com/photos/58414938@N00/5817158909
+- Scorpionfly - Panorpa species, Carderock Park, Carderock, Maryland by Judy Gallagher (CC BY 2.0) — https://www.flickr.com/photos/52450054@N04/34638082176
+- (Stigmella aurella).Bramble Leaf Miner by pete. \#hwcp (CC BY 2.0) — https://www.flickr.com/photos/13497267@N04/32232474475
+- Banner or leaf-footed bug Anisoscelis flavolineata by Pasha Kirillov (CC BY-SA 2.0) — https://www.flickr.com/photos/74834643@N07/9630501324
+- Western conifer seed bug, a species of Leaf-footed bugs(Coreidae) by Carlos Eduardo Joos (CC BY 2.0) — https://www.flickr.com/photos/40181214@N06/52117819012
+- Monarch Butterflies. Danaus plexippus video.webm by https://www.flickr.com/photos/gails_pictures/ (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Monarch_Butterflies._Danaus_plexippus_video.webm
+- Main City Amarna (V) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/7345419236
+- Main City Amarna (I) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/7160208591
+- Gold Death Mask of Tutankhamun.jpg by Thomas Clouet (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Gold_Death_Mask_of_Tutankhamun.jpg
+- The Great Sphinx of Giza by Jorge Lascar (CC BY 2.0) — https://www.flickr.com/photos/8721758@N06/14802854902
+- Great Sphinx of Giza by George M. Groutas (CC BY 2.0) — https://www.flickr.com/photos/22083482@N03/4817017135
+- Canopic jars from tomb of Tutankhamun, Cairo Museum by Charlie Phillips (CC BY 2.0) — https://www.flickr.com/photos/10807466@N03/3969430568
+- Canopic Jars of Sheshonq II by Aidan McRae Thomson (CC BY-SA 2.0) — https://www.flickr.com/photos/24141292@N02/43296312152
+- Game box for playing Senet by ddenisen (CC BY-SA 2.0) — https://www.flickr.com/photos/33218266@N00/7364442692
+- SENET: antico gioco egizio by fugzu (CC BY 2.0) — https://www.flickr.com/photos/70253321@N00/2700350929
+- Standing Osiris.svg by Jeff Dahl (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Standing_Osiris.svg
+- Tutankhamun's tomb II by Steve Parker (CC BY 2.0) — https://www.flickr.com/photos/56553246@N00/169610161
+- King Tutankhamun's tomb goods: curved box DSC\_0878 by wbaiv (CC BY-SA 2.0) — https://www.flickr.com/photos/9998127@N06/43891950930
+- King Tutankhamun's tomb goods: peaked box DSC\_0881 by wbaiv (CC BY-SA 2.0) — https://www.flickr.com/photos/9998127@N06/44795617835
+- Large handmade pottery vessel. Painted with geometric designs. From Iraq. Samarra culture, 6200-5900 BCE, Sulaymaniyah Museum, Iraq.jpg by Osama Shukir Muhammed Amin FRCP(Glasg) (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Large_handmade_pottery_vessel._Painted_with_geometric_designs._From_Iraq._Samarra_culture,_6200-5900_BCE,_Sulaymaniyah_Museum,_Iraq.jpg
+- Pantheon\_(Rome)\_-\_Right\_side\_and\_front.jpg by NikonZ7II (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Pantheon_(Rome)_-_Right_side_and_front.jpg
+- Pantheon Rome by cogito ergo imago (CC BY-SA 2.0) — https://www.flickr.com/photos/37244380@N00/290770719
+- Boetian black-figure pottery skyphos (wine-cup), found at Thebes, 4th century BC, Odysseus at sea on a raft of amphoras, Ashmolean Museum by Following Hadrian (CC BY-SA 2.0) — https://www.flickr.com/photos/41523983@N08/8401774652
+- The blinding of the drunken Cyclops Polyphemus by Odysseus and three of his companions, Sperlonga museum by Andy Hay (CC BY 2.0) — https://www.flickr.com/photos/29172291@N00/10082176274
+- Ancient palace in Persepolis, Iran by Scarto (CC BY 2.0) — https://www.flickr.com/photos/86155653@N00/463164320
+- Hattusa, the capital of the Hittite Empire in the late Bronze Age, Boğazkale, Turkey by Following Hadrian (CC BY-SA 2.0) — https://www.flickr.com/photos/41523983@N08/26130372416
+- Modern reconstruction of a 65m long section of the city wall made of mud brick, Hattusa, the capital of the Hittite Empire in the late Bronze Age, Boğazkale, Turkey by Following Hadrian (CC BY-SA 2.0) — https://www.flickr.com/photos/41523983@N08/26064042932
+- Law Code of Hammurabi Detail by cajut (CC BY-SA 2.0) — https://www.flickr.com/photos/52663149@N00/5411125627
+- Code of Hammurabi by waitscm (CC BY 2.0) — https://www.flickr.com/photos/78341140@N00/5714472614
+- Code of Hammurabi Iraq Louvre Museum by Haider A. (CC BY-SA 2.0) — https://www.flickr.com/photos/39981012@N03/3996787426
+- Hagia Sophia - Ayasofya - Αγία Σοφία by fusion-of-horizons (CC BY 2.0) — https://www.flickr.com/photos/9019841@N08/19498778375
+- Hagia Sophia by okalkavan (CC BY-SA 2.0) — https://www.flickr.com/photos/23455580@N03/5580014268
+- Treehopper on a leaf.jpg by Yldeneaf (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Treehopper_on_a_leaf.jpg
+- Ancient ziggurat at Ali Air Base Iraq 2005.jpg by en:User:Hardnfast (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Ancient_ziggurat_at_Ali_Air_Base_Iraq_2005.jpg
