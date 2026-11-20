@@ -1,0 +1,100 @@
+# Image credits — 19 Who Decided That? Facts You Probably Didn't Know
+
+Video: https://www.youtube.com/watch?v=525bjvLYFXk
+
+Every work below appears in the video and is used under the licence shown (title, author, licence, source). Licence texts: https://creativecommons.org/licenses/
+
+- Weathered recycling symbol by moonlightbulb (CC BY 2.0) — https://www.flickr.com/photos/24532534@N02/6425752323
+- Black and white composting symbol.jpg by 2muddyboots (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Black_and_white_composting_symbol.jpg
+- Recycle symbol stamped on cardboard by Creativity103 (CC BY 2.0) — https://www.flickr.com/photos/36894712@N04/25094993191
+- ED\_pantti.jpg by kallerna (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:ED_pantti.jpg
+- Recycling Symbol among Cardboard and Paper Packaging by The Bag N Box Man LTD (CC BY 2.0) — https://www.flickr.com/photos/195311218@N08/52109530858
+- McDonald's\_Higashi-Osaka\_Cainz\_Home\_Toy\_Recycle\_Box\_20230305.jpg by Mr.ちゅらさん (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:McDonald's_Higashi-Osaka_Cainz_Home_Toy_Recycle_Box_20230305.jpg
+- USB-C\_plug,\_focus\_stacked.jpg by Tomato86 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:USB-C_plug,_focus_stacked.jpg
+- USB Type-C cable on leather background by Ivan Radic (CC BY 2.0) — https://www.flickr.com/photos/26344495@N05/47387161891
+- LeTV X600 USB Type C port by Ilya Plekhanov (CC BY-SA 4.0) — https://commons.wikimedia.org/w/index.php?curid=46517325
+- 1913\_Ford\_Speedster\_-\_Flickr\_-\_dave\_7.jpg by dave\_7 from Canada (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:1913_Ford_Speedster_-_Flickr_-_dave_7.jpg
+- 1912\_Abbott\_Detroit\_with\_Gillian\_Carr\_driving,\_Goodwood\_2026.jpg by In Vitrio (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:1912_Abbott_Detroit_with_Gillian_Carr_driving,_Goodwood_2026.jpg
+- 1916Packard1-35TownCarLimoKimballInterior.jpg by Infrogmation of New Orleans (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:1916Packard1-35TownCarLimoKimballInterior.jpg
+- Clothes rack.jpg by UNIFORM Studio (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Clothes_rack.jpg
+- Clothes\_peg\_race\_car.jpg by Sebastian Rudolph (design) and Christoph Michels (photograph) (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Clothes_peg_race_car.jpg
+- Clothes hangers by blmurch (CC BY 2.0) — https://www.flickr.com/photos/82439748@N00/5819819691
+- Ermitage\_road\_sign\_2.jpg by Reda Kerbouche (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Ermitage_road_sign_2.jpg
+- Beginning of the very expensive changes coming to the Floating 520 Bridge, new lighted speed limit signs, Speed Limit 50, and what's with those dead tree tops?, Medina, Washington, USA by Wonderlane (CC BY 2.0) — https://www.flickr.com/photos/71401718@N00/5414001693
+- DSC2594 - Speed Limit Sign by Scott 97006 (CC BY 2.0) — https://www.flickr.com/photos/29487672@N07/9704796179
+- Dagmar\_Andrtova-Vonkova\_Opava\_tuning\_guitar.jpg by Multimotyl (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Dagmar_Andrtova-Vonkova_Opava_tuning_guitar.jpg
+- Guitar tuning post thingie by theilr (CC BY-SA 2.0) — https://www.flickr.com/photos/90863480@N00/4680630459
+- Guitar Fretboard Tuning Diagram Natural Harmonics.png by Fretboard\_inlays.svg: GreyCat derivative work: Sluffs (talk) (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Guitar_Fretboard_Tuning_Diagram_Natural_Harmonics.png
+- Close-up\_view\_of\_a\_guitar\_headstock\_featuring\_tuning\_pegs\_and\_strings\_in\_a\_cozy\_indoor\_setting.jpg by Shixart1985 (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Close-up_view_of_a_guitar_headstock_featuring_tuning_pegs_and_strings_in_a_cozy_indoor_setting.jpg
+- Acoustic guitar tuning pegs by keith ellwood (CC BY 2.0) — https://www.flickr.com/photos/76377775@N05/14433071079
+- Acoustic\_Guitar\_with\_Seashell\_Inlay.jpg by Melissa Ursula Dawn Goldsmith (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Acoustic_Guitar_with_Seashell_Inlay.jpg
+- Guitar tuning peg by keith ellwood (CC BY 2.0) — https://www.flickr.com/photos/76377775@N05/14585209526
+- Guitar tuning by SamJUK (CC BY 2.0) — https://www.flickr.com/photos/11511134@N04/1341956471
+- Button-and-loop-fastener\_(FindID\_75015).jpg by Suffolk County Council Archaeology Service, Faye Minter, 2004-10-05 17:21:30 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Button-and-loop-fastener_(FindID_75015).jpg
+- Dülmen,\_Kirchspiel,\_Feld\_am\_Oedlerteich\_--\_2017\_--\_5996.jpg by Dietmar Rabich (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Dülmen,_Kirchspiel,_Feld_am_Oedlerteich_--_2017_--_5996.jpg
+- Chetham's\_Library\_2015\_28.jpg by Photograph by Mike Peel (www.mikepeel.net). (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Chetham's_Library_2015_28.jpg
+- White House Doorbell by Bradley N. Weber (CC BY 2.0) — https://www.flickr.com/photos/41294655@N00/30440562516
+- Doorbell misplaced by Neosnaps (CC BY 2.0) — https://www.flickr.com/photos/29674401@N00/2574417351
+- Doorbell. by alexa fades away (CC BY 2.0) — https://www.flickr.com/photos/50728466@N06/5730231009
+- Modern\_British\_LED\_Traffic\_Light.jpg by Unisouth (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Modern_British_LED_Traffic_Light.jpg
+- Traffic signals by fireflythegreat (CC BY 2.0) — https://www.flickr.com/photos/21939501@N03/5216625122
+- traffic signal by 一人寿司-Hitori Sushi (CC BY-SA 2.0) — https://www.flickr.com/photos/97202361@N03/13748563635
+- Aspect Ratios and Resolutions-de.svg by en:User:Landen99, User:Stannered (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Aspect_Ratios_and_Resolutions-de.svg
+- Bush\_TV12\_vintage\_tv.jpg by electromechanic812291 (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Bush_TV12_vintage_tv.jpg
+- Retro\_CRT\_Television.jpg by Nabunje Leticia (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Retro_CRT_Television.jpg
+- Early\_1950s\_Television\_Set\_Eugene\_Oregon.jpg by John Atherton (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Early_1950s_Television_Set_Eugene_Oregon.jpg
+- Birmingham\_IMAX\_Tour\_-\_Film\_Reels\_for\_the\_Projector.jpg by William Hook (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Birmingham_IMAX_Tour_-_Film_Reels_for_the_Projector.jpg
+- Eight\_drinking\_straws\_(4273846588).jpg by Horia Varlan from Bucharest, Romania (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Eight_drinking_straws_(4273846588).jpg
+- Groups of drinking straws sorted by colors by Horia Varlan (CC BY 2.0) — https://www.flickr.com/photos/10361931@N06/4273102419
+- Drinking\_straws\_made\_of\_paper-02ASD.jpg by Asurnipal (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Drinking_straws_made_of_paper-02ASD.jpg
+- Brightly colored drinking straws with flexible head by Horia Varlan (CC BY 2.0) — https://www.flickr.com/photos/10361931@N06/4273103337
+- Empty Carton with Drinking Straw & Scrunched-up Wrapper by Alan Stanton (CC BY-SA 2.0) — https://www.flickr.com/photos/53921762@N00/6983152597
+- 20090920\_Starszy\_mężczyzna\_nalewa\_sobie\_wodę\_w\_Tongli\_5634.jpg by Jakub Hałun (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:20090920_Starszy_mężczyzna_nalewa_sobie_wodę_w_Tongli_5634.jpg
+- Downtown\_Charlottesville\_fire\_hydrant.jpg by Ben Schumin (CC BY-SA 2.5) — https://commons.wikimedia.org/wiki/File:Downtown_Charlottesville_fire_hydrant.jpg
+- SF Fire Hydrant Vote for Equality by Tony Fischer Photography (CC BY 2.0) — https://www.flickr.com/photos/22714323@N06/4935487026
+- Fire Hydrant by Night Photo (CC BY 2.0) — https://www.flickr.com/photos/187543158@N07/52253467038
+- East\_Greenwich\_(Rhode\_Island,\_USA),\_Hydrant\_--\_2006\_--\_10.jpg by Dietmar Rabich (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:East_Greenwich_(Rhode_Island,_USA),_Hydrant_--_2006_--_10.jpg
+- Business Calendar & Schedule by photosteve101 (CC BY 2.0) — https://www.flickr.com/photos/42931449@N07/6812481635
+- Calendarios Egipcio, Juliano, Gregoriano, Hebreo y Musulmán.png by Fernando de Gorocica (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Calendarios_Egipcio,_Juliano,_Gregoriano,_Hebreo_y_Musulmán.png
+- Byzantine\_sundial-calendar\_(reconstruction).jpg by Gts-tg (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Byzantine_sundial-calendar_(reconstruction).jpg
+- Ancient\_Roman\_or\_Hellenistic\_Sundial,\_AM\_of\_Paros,\_247459.jpg by Zde (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Ancient_Roman_or_Hellenistic_Sundial,_AM_of_Paros,_247459.jpg
+- Toothbrush Bristles by wwarby (CC BY 2.0) — https://www.flickr.com/photos/26782864@N00/11693899444
+- Access toothbrush for use with Mini Dental Implants.jpg by Roderick Dailey (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Access_toothbrush_for_use_with_Mini_Dental_Implants.jpg
+- A\_post\_medieval\_toothbrush\_(FindID\_382480).jpg by The Portable Antiquities Scheme, Daniel Pett, 2012-07-23 16:21:48 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:A_post_medieval_toothbrush_(FindID_382480).jpg
+- toothbrush by ~ezs (CC BY 2.0) — https://www.flickr.com/photos/24489124@N06/2507693391
+- Toothbrush by wwarby (CC BY 2.0) — https://www.flickr.com/photos/26782864@N00/11693522135
+- Electric Toothbrush Head by wwarby (CC BY 2.0) — https://www.flickr.com/photos/26782864@N00/11694299396
+- Dubendorf\_floodgate.jpg by Audrius Meskauskas (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Dubendorf_floodgate.jpg
+- Close-up\_view\_of\_engine\_components\_showcasing\_detailed\_mechanical\_craftsmanship\_in\_an\_automotive\_workshop\_setting.jpg by Shixart1985 (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Close-up_view_of_engine_components_showcasing_detailed_mechanical_craftsmanship_in_an_automotive_workshop_setting.jpg
+- Screw threads by Mauro Cateb (CC BY 2.0) — https://www.flickr.com/photos/69102917@N06/8445114214
+- Chemin\_Des\_Fontaines\_Nuts\_And\_Bolts\_(205810295).jpeg by Olivier S (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Chemin_Des_Fontaines_Nuts_And_Bolts_(205810295).jpeg
+- Dress,\_woman's\_(AM\_1999.70.3-11).jpg by Royal (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Dress,_woman's_(AM_1999.70.3-11).jpg
+- Detail\_of\_a\_pier\_in\_Akaroa,\_Canterbury,\_New\_Zealand.jpg by Michal Klajban (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Detail_of_a_pier_in_Akaroa,_Canterbury,_New_Zealand.jpg
+- Banff\_National\_Park\_(AB,\_Canada),\_Bankhead,\_Lower\_Bankhead\_--\_2022\_--\_2221.jpg by Dietmar Rabich (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Banff_National_Park_(AB,_Canada),_Bankhead,_Lower_Bankhead_--_2022_--_2221.jpg
+- Close-up\_view\_of\_metal\_tubes\_arranged\_in\_a\_row\_in\_a\_workshop\_showing\_manufacturing\_process\_details.jpg by Shixart1985 (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Close-up_view_of_metal_tubes_arranged_in_a_row_in_a_workshop_showing_manufacturing_process_details.jpg
+- Muffin Tin Monday - puzzle time! April is Autism Awareness Month! by anotherlunch.com (CC BY 2.0) — https://www.flickr.com/photos/44176993@N03/8604172079
+- Mega\_Muffin\_-\_Ready-)\_-\_IMG\_3667\_(13467371415).jpg by N i c o l a from Fiumicino (Rome), Italy (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Mega_Muffin_-_Ready-)_-_IMG_3667_(13467371415).jpg
+- Muffin TIn Monday springtime easter muffin tin meal by anotherlunch.com (CC BY 2.0) — https://www.flickr.com/photos/44176993@N03/8586660449
+- Baking\_the\_cupcakes\_(450381197).jpg by Mack Male from Edmonton, AB, Canada (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Baking_the_cupcakes_(450381197).jpg
+- Muffin Tin Monday - rainbow of food for St. Patrick's Day by anotherlunch.com (CC BY 2.0) — https://www.flickr.com/photos/44176993@N03/8567619056
+- Cauliflower Pizza Bites, Mini-muffin tin by Tatiana12 (CC BY 2.0) — https://www.flickr.com/photos/98826299@N00/7774910340
+- Muffin Tin Monday - Sweets & Treats lunch by anotherlunch.com (CC BY 2.0) — https://www.flickr.com/photos/44176993@N03/8483422954
+- Muffin Tin Monday - perfect easy picnic by anotherlunch.com (CC BY 2.0) — https://www.flickr.com/photos/44176993@N03/8943569323
+- FACT- Hand dryers are NOT effective in killing the COVID-19 virus.svg by WHO-openaccess (WHO original PNG file) Cantons-de-l'Est (from PNG to SVG) Canton (CC BY-SA 3.0 igo) — https://commons.wikimedia.org/wiki/File:FACT-_Hand_dryers_are_NOT_effective_in_killing_the_COVID-19_virus.svg
+- AIKE\_hands-in\_jet\_hand\_dryer.jpg by Baron Maddock (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:AIKE_hands-in_jet_hand_dryer.jpg
+- "Handicap\_Accessible"\_Restroom\_in\_Dyer,\_West\_Virginia.jpg by Jason Pratt (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:"Handicap_Accessible"_Restroom_in_Dyer,_West_Virginia.jpg
+- Hand Dryer - Bobrick B701 by nickgraywfu (CC BY-SA 2.0) — https://www.flickr.com/photos/35034365374@N01/330996690
+- 20110926 17 Hand Dryer Sign, Hickory, NC by davidwilson1949 (CC BY 2.0) — https://www.flickr.com/photos/32693718@N07/6245364894
+- super hand dryer by bradleygee (CC BY 2.0) — https://www.flickr.com/photos/13951072@N00/2533512654
+- Wasmand.jpg by Sietske at Dutch Wikipedia (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Wasmand.jpg
+- 2021-07-24 repaired laundry basket 01.jpg by Bärbel Miemietz (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:2021-07-24_repaired_laundry_basket_01.jpg
+- Zara\_shirt\_in\_the\_hamper.jpg by Ejdowning00 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Zara_shirt_in_the_hamper.jpg
+- MercedTour48.JPG by Thelmadatter (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:MercedTour48.JPG
+- Firsilar the cat upside down in a purple laundry hamper by Helena Jacoba (CC BY 2.0) — https://www.flickr.com/photos/69302634@N02/8561355596
+- WaynePump-sm.jpg by Aaron Lawrence at English Wikipedia (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:WaynePump-sm.jpg
+- Fuel\_Dispenser\_at\_Lawson\_by\_Dia\_Shoseki\_(2023).jpg by VVVN (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Fuel_Dispenser_at_Lawson_by_Dia_Shoseki_(2023).jpg
+- Retro gas pump by Alesist (CC BY-SA 2.0) — https://www.flickr.com/photos/21829280@N02/2274063636
+- Dieselpumppu\_Monchegorskissa.jpg by kallerna (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Dieselpumppu_Monchegorskissa.jpg
+- Electric\_car\_refueling\_(5588949201).jpg by Håkan Dahlström from Malmö, Sweden (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Electric_car_refueling_(5588949201).jpg
+- Old\_Gas\_Pump.jpg by Daryl Mitchell from Saskatoon, Canada (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Old_Gas_Pump.jpg
+- Green Gas Pumps II by Barbara L. Hanson (CC BY 2.0) — https://www.flickr.com/photos/62943723@N00/1050939777
