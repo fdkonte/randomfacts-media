@@ -1,0 +1,265 @@
+# Image credits — Egypt's Warrior Pharaohs \| Sleepy History to Fall Asleep To
+
+Video: https://www.youtube.com/watch?v=6Wpo0XO41VQ
+
+Every work below appears in the video and is used under the licence shown (title, author, licence, source). Licence texts: https://creativecommons.org/licenses/
+
+- File:AhmoseI-FragmentaryStela-StatueMarbleTorso MetropolitanMuseumOfArt.png by Keith Schengili-Roberts (CC BY-SA 2.5) — https://upload.wikimedia.org/wikipedia/commons/f/f8/AhmoseI-FragmentaryStela-StatueMarbleTorso_MetropolitanMuseumOfArt.png?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Ahmose I and Ahmose-Nefertari Relief Brooklyn Museum.png by Keith Schengili-Roberts (CC BY-SA 2.5) — https://upload.wikimedia.org/wikipedia/commons/c/c3/Ahmose_I_and_Ahmose-Nefertari_Relief_Brooklyn_Museum.png?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Ahmose I and Ahmose-Nefertari Relief Brooklyn Museum (cropped).png by Keith Schengili-Roberts (CC BY-SA 2.5) — https://upload.wikimedia.org/wikipedia/commons/f/fe/Ahmose_I_and_Ahmose-Nefertari_Relief_Brooklyn_Museum_%28cropped%29.png?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:BronzeDagger-AhmoseI.png by Keith Schengili-Roberts (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/f/fa/BronzeDagger-AhmoseI.png?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Dagger and sheath of Ahmose I.jpg by Heidi Kontkanen (CC BY-SA 2.0) — https://upload.wikimedia.org/wikipedia/commons/0/03/Dagger_and_sheath_of_Ahmose_I.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Representation of the deified queen Ahmose-Nefertari, the Great Royal Wife of Ahmose I. From Tomb TT359 at Deir el-Medina, Egypt. Neues Museum.jpg by Osama Shukir Muhammed Amin FRCP(Glasg) (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Representation_of_the_deified_queen_Ahmose-Nefertari,_the_Great_Royal_Wife_of_Ahmose_I._From_Tomb_TT359_at_Deir_el-Medina,_Egypt._Neues_Museum.jpg
+- Videos provided by Pexels (https://www.pexels.com) — Muhammed Fatih Beki, Beneid, Gizem toprak
+- File:Amenhotep I at a fresco Ägyptisches Museum Berlin.jpg by Marcus Cyron (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/4/46/Amenhotep_I_at_a_fresco_%C3%84gyptisches_Museum_Berlin.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:AmunhotepI-Relief-WhiteCrown BrooklynMuseum.png by Keith Schengili-Roberts (CC BY-SA 2.5) — https://upload.wikimedia.org/wikipedia/commons/5/58/AmunhotepI-Relief-WhiteCrown_BrooklynMuseum.png?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Ancient Egypt map-IndexA4NKaart4.svg by Chart made by Jeff Dahl, rivised by JLG. Arts. (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Ancient_Egypt_map-IndexA4NKaart4.svg
+- Karnak Temple, Luxor, Egypt by \_jcthomas\_ (CC BY 2.0) — https://www.flickr.com/photos/8751402@N02/2504815079
+- Dendera\_Temple\_complex\_(2007-05-311)\_(1241076587).jpg by Vyacheslav Argenberg from Seattle, WA, USA (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Dendera_Temple_complex_(2007-05-311)_(1241076587).jpg
+- File:Dignitary under Djeserkare Florence.JPG by Khruner (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/9/9f/Dignitary_under_Djeserkare_Florence.JPG?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- PEbers\_c41-bc.jpg by PEbers\_c41.jpg: Einsamer Schütze derivative work: Photohound (talk) (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:PEbers_c41-bc.jpg
+- File:Egypte louvre 086 stele.jpg by Unknown artistUnknown artist (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/a/ae/Egypte_louvre_086_stele.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:EstelaAmenhotepIYMentuhotepII (46199941781).jpg by rowanwindwhistler (CC BY-SA 2.0) — https://upload.wikimedia.org/wikipedia/commons/e/ec/EstelaAmenhotepIYMentuhotepII_%2846199941781%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:+Die Sammlung Psusennes I im Ägyptischen Museum, Kairo. 04.jpg by Holger Uwe Schmitt (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/2/22/%2BDie_Sammlung_Psusennes_I_im_%C3%84gyptischen_Museum%2C_Kairo._04.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Amenhotep II, From Karnak, ca. 1400 BCE; Egyptian Museum, Cairo.jpg by Richard Mortel (CC BY 2.0) — https://upload.wikimedia.org/wikipedia/commons/7/7c/Amenhotep_II%2C_From_Karnak%2C_ca._1400_BCE%3B_Egyptian_Museum%2C_Cairo.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Fmed-08-778498-g003 (side).jpg by Saleem and Hawass (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/a/ab/Fmed-08-778498-g003_%28side%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Karnak Musee 09.jpg by Neithsabes (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/6/66/Karnak_Musee_09.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- ...Catacombsa.jpg by Bilal Detailz (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:...Catacombsa.jpg
+- Ramses\_II\_and\_The\_Colonnade\_of\_Amenophis\_III\_(14259621702).jpg by Jorge Láscar from Melbourne, Australia (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Ramses_II_and_The_Colonnade_of_Amenophis_III_(14259621702).jpg
+- 20111106\_Egypt\_0928 Thebes Colossi of Memnon by Dan Lundberg (CC BY-SA 2.0) — https://www.flickr.com/photos/9508280@N07/6379695333
+- File:Sandstone Stela Dated to Year 8 of Pharaoh Amenhotep I (~1530 BC, 18th Dynasty, from Qasr Ibrim) - British Museum.jpg by Andres Rueda (CC BY 2.0) — https://upload.wikimedia.org/wikipedia/commons/0/0d/Sandstone_Stela_Dated_to_Year_8_of_Pharaoh_Amenhotep_I_%28~1530_BC%2C_18th_Dynasty%2C_from_Qasr_Ibrim%29_-_British_Museum.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Egypt\_sahura\_and\_god.jpg by Rosemania (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Egypt_sahura_and_god.jpg
+- Representation of the deified Amenhotep I. From Tomb TT359 at Deir el-Medina, Egypt. Neues Museum, Berlin.jpg by Osama Shukir Muhammed Amin FRCP(Glasg) (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Representation_of_the_deified_Amenhotep_I._From_Tomb_TT359_at_Deir_el-Medina,_Egypt._Neues_Museum,_Berlin.jpg
+- Videos provided by Pexels (https://www.pexels.com) — Natalya  Cotenko, Maor Attias, Michelle Chadwick, Osviel Rodriguez Valdés
+- File:Abydos KL 18-03 n68.jpg by Abydos\_Königsliste\_09.jpg: Olaf Tausch
+- File:Flickr - schmuela - sweeeet Khmoun.jpg by Karen Green (CC BY-SA 2.0) — https://upload.wikimedia.org/wikipedia/commons/b/bf/Flickr_-_schmuela_-_sweeeet_Khmoun.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Roemer-Pelizaeus-Museum 2018-09-20zs.jpg by Djehouty (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/a/a7/Roemer-Pelizaeus-Museum_2018-09-20zs.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- A\_man\_sailing\_on\_a\_country\_made\_boat\_in\_the\_Hooghly\_river,\_on\_the\_other\_side\_of\_the\_river\_is\_Chatu\_babu\_ghat\_in\_Howrah.jpg by Subhrajyoti07 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:A_man_sailing_on_a_country_made_boat_in_the_Hooghly_river,_on_the_other_side_of_the_river_is_Chatu_babu_ghat_in_Howrah.jpg
+- Visby, Gotland, Sweden by Ben124. (CC BY 2.0) — https://www.flickr.com/photos/9298216@N08/6633336083
+- The Court of Amonhotep III - Luxor Temple by Jorge Lascar (CC BY 2.0) — https://www.flickr.com/photos/8721758@N06/14238639716
+- Karnak-obelisk-thoutmesI.jpg by Kurohito (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Karnak-obelisk-thoutmesI.jpg
+- Tower Tomb at Palmyra, Syria. by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/5515206814
+- Landscape View of the Necropolis at Palmyra, Syria. (II) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/5515211208
+- Golden Mask of King Tut (Cairo) by ancientartpodcast.org (CC BY 2.0) — https://www.flickr.com/photos/35150094@N04/8045323435
+- Obelisk of Thutmose I- The smallest of the two remaining obelisks. Each face has three lines of inscriptions (14208192862).jpg by Jorge Láscar from Melbourne, Australia (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Obelisk_of_Thutmose_I-_The_smallest_of_the_two_remaining_obelisks._Each_face_has_three_lines_of_inscriptions_(14208192862).jpg
+- Videos provided by Pexels (https://www.pexels.com) — Eslam  Magdy, MART  PRODUCTION, Mert Çelik
+- Busto\_de\_Hatshepsut\_-\_A740826.jpg by Rjcastillo (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Busto_de_Hatshepsut_-_A740826.jpg
+- Il tempio di Hatshepsut by Andrea Piroddi (CC BY-SA 3.0) — https://commons.wikimedia.org/w/index.php?curid=3519882
+- Egypt\_-\_Temple\_of\_Dendur\_2.jpg by Rosemania (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Egypt_-_Temple_of_Dendur_2.jpg
+- Mortuary\_Temple\_of\_Hatshepsut,\_LUXOR\_03.jpg by Bilal Detailz (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Mortuary_Temple_of_Hatshepsut,_LUXOR_03.jpg
+- File:Quartz sarcophagus of Queen Hatshepsut.jpg by Merja Attia (CC BY-SA 2.0) — https://upload.wikimedia.org/wikipedia/commons/a/a4/Quartz_sarcophagus_of_Queen_Hatshepsut.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Mortuary\_Temple\_of\_Hatshepsut,\_LUXOR\_07.jpg by Bilal Detailz (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Mortuary_Temple_of_Hatshepsut,_LUXOR_07.jpg
+- Linear\_Dunes,\_Great\_Sand\_Sea,\_Egypt\_-\_NASA\_Earth\_Observatory.jpg by NASA's Earth Observatory (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Linear_Dunes,_Great_Sand_Sea,_Egypt_-_NASA_Earth_Observatory.jpg
+- Relief fragments from the funerary temple of pharaoh Hatshepsut, boat trip 03.jpg by ArchaiOptix (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Relief_fragments_from_the_funerary_temple_of_pharaoh_Hatshepsut,_boat_trip_03.jpg
+- Videos provided by Pexels (https://www.pexels.com) — antonio filigno, AXP Photography, Diego F. Parra, Luisa Castillo Osorio, K, Balázs Gábor, Yahya Idrıs
+- File:Abydos KL 18-05 n70.jpg by Abydos\_Königsliste\_10.jpg: Olaf Tausch
+- File:Bas relief Thutmosis III and Amon-MBA Lyon E501-1731-IMG 0218.jpg (CC BY-SA 2.0 fr) — https://upload.wikimedia.org/wikipedia/commons/3/39/Bas_relief_Thutmosis_III_and_Amon-MBA_Lyon_E501-1731-IMG_0218.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Throne name, Menkheperre, cartouche of Thutmose III, from the mortuary temple of Hatshesput at Deir el-Bahari, Egypt. c. 1479-1458 BCE. Neues Museum.jpg by Osama Shukir Muhammed Amin FRCP(Glasg) (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Throne_name,_Menkheperre,_cartouche_of_Thutmose_III,_from_the_mortuary_temple_of_Hatshesput_at_Deir_el-Bahari,_Egypt._c._1479-1458_BCE._Neues_Museum.jpg
+- Videos provided by Pexels (https://www.pexels.com) — RAVI  LAGES
+- Hieroglyphs-temple-Ombos-Egypt.jpg by Eagleye Karter (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Hieroglyphs-temple-Ombos-Egypt.jpg
+- Carvings on the wall, Hoysaleswara Temple, Halebidu, Hassan, Karnataka, India (2022).jpg by Avisek Roy (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Carvings_on_the_wall,_Hoysaleswara_Temple,_Halebidu,_Hassan,_Karnataka,_India_(2022).jpg
+- File:Carved relief from the temple walls of Kalabsha by John Campana.jpg by https://www.flickr.com/photos/10647023@N04/  (Mr. John Campana) (CC BY 2.0) — https://upload.wikimedia.org/wikipedia/commons/8/8d/Carved_relief_from_the_temple_walls_of_Kalabsha_by_John_Campana.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Kom Ombo Temple, Egypt by S J Pinkney (CC BY 2.0) — https://www.flickr.com/photos/16722060@N07/2706635676
+- The\_Temple\_of\_Kalabsha\_by\_Dennis\_G.\_Jarvis.jpg by Dennis G. Jarvis (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:The_Temple_of_Kalabsha_by_Dennis_G._Jarvis.jpg
+- File:Augustus-in-Kalabsha.jpg by hu:User:Lassi (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/d/d7/Augustus-in-Kalabsha.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Temple\_Reliefs\_at\_Kalabsha\_(III).jpg by isawnyu (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Temple_Reliefs_at_Kalabsha_(III).jpg
+- Egypt-9A-106 - Temple of Dakka by archer10 (Dennis) (CC BY-SA 2.0) — https://www.flickr.com/photos/22490717@N02/2216648209
+- The Temple at Kalabsha (I) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/5913197834
+- The Temple at Kalabsha (II) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/5912637977
+- The Temple at Kalabsha (IV) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/5912639687
+- File:Egypte Kalabsha Ka Mandulis.JPG by Ben Pirard (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/b/b0/Egypte_Kalabsha_Ka_Mandulis.JPG?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Temple of Kalabsha by Verity Cridland (CC BY 2.0) — https://www.flickr.com/photos/58789412@N00/8430730552
+- Kufu's Great pyramid by Bernt Rostad (CC BY 2.0) — https://www.flickr.com/photos/67975030@N00/232528949
+- Hypostyle Hall of the Hathor Temple at Dendera (V) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/8389745719
+- File:Flickr - schmuela - IMG 6634.jpg by Karen Green (CC BY-SA 2.0) — https://upload.wikimedia.org/wikipedia/commons/4/4f/Flickr_-_schmuela_-_IMG_6634.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Videos provided by Pexels (https://www.pexels.com) — Zehra Rekibe Başol, DANIELA LAURA GONZALEZ
+- Tumba de Ramsés V y de Ramsés VI, Valle de las Reyes, Luxor, Egipto, 2022-04-03, DD 48.jpg by Diego Delso (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Tumba_de_Ramsés_V_y_de_Ramsés_VI,_Valle_de_las_Reyes,_Luxor,_Egipto,_2022-04-03,_DD_48.jpg
+- Amenhotep II at the Temple of Amada, Lake Nasser, Egypt by Following Hadrian (CC BY-SA 2.0) — https://www.flickr.com/photos/41523983@N08/51936001436
+- Coffin\_of\_Ramesses\_II\_01.jpg by Merytat3n (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Coffin_of_Ramesses_II_01.jpg
+- External\_Trappings\_of\_Tutankhamun\_2018.jpg by Matthew Dillon (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:External_Trappings_of_Tutankhamun_2018.jpg
+- Videos provided by Pexels (https://www.pexels.com) — AXP Photography
+- Khafre's\_Pyramid\_at\_Giza\_(2427492641).jpg by Jerome Bon from Paris, France (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Khafre's_Pyramid_at_Giza_(2427492641).jpg
+- Canopic jars from tomb of Tutankhamun, Cairo Museum by Charlie Phillips (CC BY 2.0) — https://www.flickr.com/photos/10807466@N03/3969430568
+- Tutankhamun's tomb II by Steve Parker (CC BY 2.0) — https://www.flickr.com/photos/56553246@N00/169610161
+- File:Engraved Wood Chest of Tutankhamun 2019.jpg by Claude Valette (CC BY 2.0) — https://upload.wikimedia.org/wikipedia/commons/5/54/Engraved_Wood_Chest_of_Tutankhamun_2019.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:King Tut's shoes the Egyptian Museum in Cairo's Tahrir Street March 16, 2004.jpg by Erwin Müller Schneider (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/f/f2/King_Tut%27s_shoes_the_Egyptian_Museum_in_Cairo%27s_Tahrir_Street_March_16%2C_2004.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- King\_Tut\_Mask\_front\_and\_back.jpg by Tarekheikal (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:King_Tut_Mask_front_and_back.jpg
+- King\_Tut\_Ankh\_Amun\_Golden\_Mask.jpg by Steve Evans (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:King_Tut_Ankh_Amun_Golden_Mask.jpg
+- File:Lioness Bast cosmetic jar 83d40m tut burial artifact.jpg by 83d40m (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/d/da/Lioness_Bast_cosmetic_jar_83d40m_tut_burial_artifact.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Tutanchamon (js) 3.jpg by Jerzy Strzelecki (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/a/af/Tutanchamon_%28js%29_3.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Tutankhamun.png by Dan Palraz (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/2/29/Tutankhamun.png?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Egyptian Stone Carved With Hieroglyphs by dun\_deagh (CC BY-SA 2.0) — https://www.flickr.com/photos/60006733@N05/7158817832
+- Flickr\_-\_archer10\_(Dennis)\_-\_Egypt-5B-008\_-\_Gebel\_el-Silsila.jpg by Dennis G. Jarvis (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Flickr_-_archer10_(Dennis)_-_Egypt-5B-008_-_Gebel_el-Silsila.jpg
+- First\_pylon\_of\_the\_Amun-Re\_temple\_entrance\_-\_Karnak\_Temple\_(14187552886).jpg by Jorge Láscar from Melbourne, Australia (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:First_pylon_of_the_Amun-Re_temple_entrance_-_Karnak_Temple_(14187552886).jpg
+- Tutankhamun’s Third inner shrine 2019.jpg by Merja Attia (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Tutankhamun’s_Third_inner_shrine_2019.jpg
+- Videos provided by Pexels (https://www.pexels.com) — Ayman Mahmoud, Hale Ş
+- Entrance\_celing\_of\_Ramses\_IV\_tomb\_in\_the\_Valley\_of\_the\_Kings\_(KV2).jpg by Strike28 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Entrance_celing_of_Ramses_IV_tomb_in_the_Valley_of_the_Kings_(KV2).jpg
+- Tumba\_de\_Ramsés\_V\_y\_de\_Ramsés\_VI,\_Valle\_de\_las\_Reyes,\_Luxor,\_Egipto,\_2022-04-03,\_DD\_48.jpg by Diego Delso (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Tumba_de_Ramsés_V_y_de_Ramsés_VI,_Valle_de_las_Reyes,_Luxor,_Egipto,_2022-04-03,_DD_48.jpg
+- File:Egypt, Luxor, King's Valey - panoramio - Alx R (3).jpg by Alx R (CC BY 3.0) — https://upload.wikimedia.org/wikipedia/commons/2/24/Egypt%2C_Luxor%2C_King%27s_Valey_-_panoramio_-_Alx_R_%283%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Amun\_and\_Amunet\_Dyad\_in\_the\_court\_of\_the\_6th\_pylon\_in\_Karnak\_-\_schmuela\_-\_IMG\_7437.jpg by Karen Green (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Amun_and_Amunet_Dyad_in_the_court_of_the_6th_pylon_in_Karnak_-_schmuela_-_IMG_7437.jpg
+- The Temple to Ramesses II at Abu Simbel (XV) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/6960065757
+- KV17,\_the\_tomb\_of\_Pharaoh\_Seti\_I\_of\_the\_Nineteenth\_Dynasty,\_Burial\_chamber\_J,\_Valley\_of\_the\_Kings,\_Egypt\_(49845803558).jpg by Carole Raddato from Frankfurt, Germany (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:KV17,_the_tomb_of_Pharaoh_Seti_I_of_the_Nineteenth_Dynasty,_Burial_chamber_J,_Valley_of_the_Kings,_Egypt_(49845803558).jpg
+- قوارب\_أبيدوس.jpg by أحمد بن طارق (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:قوارب_أبيدوس.jpg
+- Videos provided by Pexels (https://www.pexels.com) — AXP Photography, Diego F. Parra
+- A\_portion\_of\_the\_remaining\_obelisk\_and\_the\_two\_25m.\_statues\_of\_Ramses\_II\_-\_The\_entrance\_pylon\_-\_Luxor\_Temple\_(14258364721).jpg by Jorge Láscar from Melbourne, Australia (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:A_portion_of_the_remaining_obelisk_and_the_two_25m._statues_of_Ramses_II_-_The_entrance_pylon_-_Luxor_Temple_(14258364721).jpg
+- Egyptian\_Stone\_Carved\_With\_Hieroglyphs\_(7158805882).jpg by dun\_deagh (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Egyptian_Stone_Carved_With_Hieroglyphs_(7158805882).jpg
+- File:AkhmimAy.jpg by Roland Unger (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/7/72/AkhmimAy.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Kheperkheperure Ay.jpg by Juan R. Lazaro (CC BY 2.0) — https://upload.wikimedia.org/wikipedia/commons/1/19/Kheperkheperure_Ay.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Kheperkheperure Ay 2.jpg by Juan R. Lazaro (CC BY 2.0) — https://upload.wikimedia.org/wikipedia/commons/7/71/Kheperkheperure_Ay_2.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:ReleifOfAManFromTombOfAy-PetrieMuseum-August21-08.jpg by User:Captmondo (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/f/f1/ReleifOfAManFromTombOfAy-PetrieMuseum-August21-08.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:WV23 by Mutnedjmet.jpg by kairoinfo4u: Mutnedjmet (CC BY-SA 2.0) — https://upload.wikimedia.org/wikipedia/commons/6/69/WV23_by_Mutnedjmet.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Painted relief from Ay's WV23 tomb.jpg by Fabio Achili (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Painted_relief_from_Ay's_WV23_tomb.jpg
+- Temple of Ramesses II, Abu Simbel by Son of Groucho (CC BY 2.0) — https://www.flickr.com/photos/23401669@N00/1053228546
+- File:Duck Bracelet of Ramesses II 2018.jpg by Vivafox/Francois Galluccio (CC BY-SA 2.0) — https://upload.wikimedia.org/wikipedia/commons/c/ce/Duck_Bracelet_of_Ramesses_II_2018.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Colossal\_bust\_of\_Ramesses\_II\_in\_the\_British\_Museum.jpg by Unknown artistUnknown artist (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Colossal_bust_of_Ramesses_II_in_the_British_Museum.jpg
+- Statue of Ramesses II with his daughter, Princess Bint-Anta between his legs flanks the second pylon by Jorge Lascar (CC BY 2.0) — https://www.flickr.com/photos/8721758@N06/14230881933
+- Paintings from the tomb of Sadosiris at Muzawaka (XIX) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/4546291922
+- File,\_Asuán,\_Egipto,\_2022-04-01,\_DD\_144.jpg by Diego Delso (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:File,_Asuán,_Egipto,_2022-04-01,_DD_144.jpg
+- File:Ramesses II fighting Nubians.jpg by SpeakingArch (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/2/2b/Ramesses_II_fighting_Nubians.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Ramses II audience.jpg by Soutekh67 (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/8/8b/Ramses_II_audience.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Luxor\_Temple\_R04.jpg by Marc Ryckaert (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Luxor_Temple_R04.jpg
+- Karnak Temple, Luxor, Egypt by \_jcthomas\_ (CC BY 2.0) — https://www.flickr.com/photos/8751402@N02/2505646982
+- Cartouche\_of\_Pharaoh\_Sahure,\_detail\_of\_a\_wall\_panel\_from\_the\_mortuary\_temple\_of\_Sahure\_at\_Abusir,\_Egypt.\_25th\_century\_BCE.\_Neues\_Museum.jpg by Osama Shukir Muhammed Amin FRCP(Glasg) (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Cartouche_of_Pharaoh_Sahure,_detail_of_a_wall_panel_from_the_mortuary_temple_of_Sahure_at_Abusir,_Egypt._25th_century_BCE._Neues_Museum.jpg
+- Amenhotep-HPA.JPG by Karnak15.JPG: Rémih derivative work: AnnekeBart (talk) (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Amenhotep-HPA.JPG
+- Beit\_el-Wali\_relief\_of\_Ramesses\_II\_smiting\_an\_enemy\_by\_John\_Campana.jpg by tutincommon (John Campana) (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Beit_el-Wali_relief_of_Ramesses_II_smiting_an_enemy_by_John_Campana.jpg
+- BM,\_AES\_Egyptian\_Sulpture\_~\_Colossal\_bust\_of\_Ramesses\_II,\_the\_'Younger\_Memnon'\_(1250\_BC)\_(Room\_4).jpg (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:BM,_AES_Egyptian_Sulpture_~_Colossal_bust_of_Ramesses_II,_the_'Younger_Memnon'_(1250_BC)_(Room_4).jpg
+- The\_tomb\_of\_Pamses\_I,\_(KV16)\_3.jpg by Leon petrosyan (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:The_tomb_of_Pamses_I,_(KV16)_3.jpg
+- Luxor\_Temple,\_Luxor,\_Egypt.jpg by Vyacheslav Argenberg (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Luxor_Temple,_Luxor,_Egypt.jpg
+- Faience\_tile\_with\_rekhyt-birds.\_Ramesses\_III\_(1183-1152\_BCE)\_The\_royal\_palace,\_Tell\_el\_Yahudiyeh.jpg by SpeakingArch (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Faience_tile_with_rekhyt-birds._Ramesses_III_(1183-1152_BCE)_The_royal_palace,_Tell_el_Yahudiyeh.jpg
+- NationalMuseumBeirut\_RamsesII-BasaltStele-Tyre-13cBC\_RomanDeckert31102019.jpg by RomanDeckert (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:NationalMuseumBeirut_RamsesII-BasaltStele-Tyre-13cBC_RomanDeckert31102019.jpg
+- Videos provided by Pexels (https://www.pexels.com) — AXP Photography, Maxim Pat, Luisa Castillo Osorio
+- Tomb of Mehu, chief justice and vizier of King Teti, 6th dynasty, ca 2345-2323 BCE; Saqqara (93) by Prof. Mortel (CC BY 2.0) — https://www.flickr.com/photos/43714545@N06/52089158965
+- Egypt-7A-052 (2217418822).jpg by Dennis G. Jarvis (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Egypt-7A-052_(2217418822).jpg
+- Prince\_Khaemwaset\_behind\_Ramesses\_III\_in\_Tomb\_QV44.jpg by Rodolfo Valverde (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Prince_Khaemwaset_behind_Ramesses_III_in_Tomb_QV44.jpg
+- File:QV66 Nefertari.jpg by Cleopatra VIII (Nefertiri) (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/a/a9/QV66_Nefertari.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Xerxes tomb at Naqsh-e Rostam: upper register by dynamosquito (CC BY-SA 2.0) — https://www.flickr.com/photos/25182210@N07/4614878357
+- File:Hatshepsut temple21.JPG by Rémih (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/9/99/Hatshepsut_temple21.JPG?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Back\_wall\_of\_Temple\_of\_Hathor.jpg by Chanel Wheeler (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Back_wall_of_Temple_of_Hathor.jpg
+- File:Tomb of Nefertari 2022 04.jpg by Onceinawhile (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/b/b8/Tomb_of_Nefertari_2022_04.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Tomb of Nefertari 2022 17.jpg by Onceinawhile (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/b/b0/Tomb_of_Nefertari_2022_17.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Tomb of Nefertari 2022 24.jpg by Onceinawhile (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/e/ea/Tomb_of_Nefertari_2022_24.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Archaeological excavations at a prehistoric American Indian site in the John Day Fossil Beds National Monument, north-central Oregon (USA) by gbaku (CC BY-SA 2.0) — https://www.flickr.com/photos/72105154@N00/2354942831
+- Videos provided by Pexels (https://www.pexels.com) — AXP Photography, Marek Piwnicki, Julia Volk
+- Deir\_el-Medina-08-Grab\_1-Sennedjem-18.-20.Dyn-1982-gje.jpg by Gerd Eichmann (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Deir_el-Medina-08-Grab_1-Sennedjem-18.-20.Dyn-1982-gje.jpg
+- Tomb\_of\_Sennedjem\_(ceiling)\_DSCF3579.jpg by R Prazeres (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Tomb_of_Sennedjem_(ceiling)_DSCF3579.jpg
+- Duna\_en\_Sossusvlei,\_Namibia,\_2018-08-06,\_DD\_002.jpg by Diego Delso (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Duna_en_Sossusvlei,_Namibia,_2018-08-06,_DD_002.jpg
+- File:Gedraaid werk staat te drogen.jpg by RenskeBdJ (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/d/d2/Gedraaid_werk_staat_te_drogen.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Videos provided by Pexels (https://www.pexels.com) — Faruk Yıldız
+- Templo\_funerario\_de\_Hatshepsut,\_Luxor,\_Egipto,\_2022-04-03,\_DD\_13.jpg by Diego Delso (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Templo_funerario_de_Hatshepsut,_Luxor,_Egipto,_2022-04-03,_DD_13.jpg
+- Ramsis,\_Aswan\_Governorate,\_Egypt\_-\_panoramio.jpg by youssef\_alam (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Ramsis,_Aswan_Governorate,_Egypt_-_panoramio.jpg
+- File:1964 bis 1968 wurde der kleine Tempel in Blöcke zerlegt und 200 Meter landeinwärts wieder aufgebaut. 05.jpg by Holger Uwe Schmitt (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/8/8f/1964_bis_1968_wurde_der_kleine_Tempel_in_Bl%C3%B6cke_zerlegt_und_200_Meter_landeinw%C3%A4rts_wieder_aufgebaut._05.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Exterior\_Details\_at\_Abu\_Simbel\_(III).jpg by isawnyu (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Exterior_Details_at_Abu_Simbel_(III).jpg
+- The Temple to Nefertari at Abu Simbel (III) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/6962391515
+- File:Abu Simbel (420067640) (2).jpg by Denise Chan from Hong Kong, China (CC BY-SA 2.0) — https://upload.wikimedia.org/wikipedia/commons/a/a3/Abu_Simbel_%28420067640%29_%282%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Egypt-10B-022\_-\_Great\_Temple\_of\_Rameses\_II\_(2216680889).jpg by Dennis G. Jarvis (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Egypt-10B-022_-_Great_Temple_of_Rameses_II_(2216680889).jpg
+- File:Abu Simbel Great Temple 02.jpg by Benjamin Inbar (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/8/8c/Abu_Simbel_Great_Temple_02.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Abu Simbel Temple 2022-01.jpg by Yasser.mahmoud (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/2/24/Abu_Simbel_Temple_2022-01.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Ancient Temple Ruins by FullofTravel (CC BY 2.0) — https://www.flickr.com/photos/41070859@N06/6375762003
+- Excavations\_at\_Faras\_049.jpg by Tadeusz Biniewski (CC BY-SA 3.0 pl) — https://commons.wikimedia.org/wiki/File:Excavations_at_Faras_049.jpg
+- Esna\_Temple\_R01.jpg by Marc Ryckaert (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Esna_Temple_R01.jpg
+- Templo de Nefertari, Abu Simbel, Egipto, 2022-04-02, DD 153.jpg by Diego Delso (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Templo_de_Nefertari,_Abu_Simbel,_Egipto,_2022-04-02,_DD_153.jpg
+- File:Abu Simbel Temple 2024.jpg by Ahmedshoushan (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/2/20/Abu_Simbel_Temple_2024.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Abu Simbel Temple 2025.jpg by Ahmedshoushan (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/3/30/Abu_Simbel_Temple_2025.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Great\_Rock-Cut\_Temple,\_Abou\_Simbel,\_Nubia\_(1890)\_-\_TIMEA.jpg (CC BY-SA 2.5) — https://commons.wikimedia.org/wiki/File:Great_Rock-Cut_Temple,_Abou_Simbel,_Nubia_(1890)_-_TIMEA.jpg
+- Columns\_in\_Karnak\_Temple\_,\_Luxor.JPG by Belmahdy (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Columns_in_Karnak_Temple_,_Luxor.JPG
+- Detail\_of\_the\_double\_row\_of\_columns\_with\_papyrus\_bundle\_capitals\_-\_The\_Court\_of\_Amonhotep\_III\_-\_Luxor\_Temple\_(14258437201).jpg by Jorge Láscar from Melbourne, Australia (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Detail_of_the_double_row_of_columns_with_papyrus_bundle_capitals_-_The_Court_of_Amonhotep_III_-_Luxor_Temple_(14258437201).jpg
+- Bark\_shrines\_of\_Seti\_II\_at\_the\_left\_of\_the\_entrance\_of\_the\_first\_pylon\_-\_Karnak\_Complex\_(14187549286).jpg by Jorge Láscar from Melbourne, Australia (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Bark_shrines_of_Seti_II_at_the_left_of_the_entrance_of_the_first_pylon_-_Karnak_Complex_(14187549286).jpg
+- Videos provided by Pexels (https://www.pexels.com) — Ted McDonnell, Alberto Capparelli, AXP Photography, Tito Zzzz
+- File:AbydosR2QadeshBattle-81.jpg by Roland Unger (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/9/94/AbydosR2QadeshBattle-81.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Cyark Ramesseum first pylon 2.jpg by CyArk (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/a/ab/Cyark_Ramesseum_first_pylon_2.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Ashurbanipal\_II's\_army\_attacking\_Memphis,\_Egypt,\_645-635\_BCE,\_from\_Nineveh,\_Iraq.\_British\_Museum.jpg by Osama Shukir Muhammed Amin FRCP(Glasg) (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Ashurbanipal_II's_army_attacking_Memphis,_Egypt,_645-635_BCE,_from_Nineveh,_Iraq._British_Museum.jpg
+- Governor's Residence at Canaanite Aphek by Ian W Scott (CC BY-SA 2.0) — https://www.flickr.com/photos/38000818@N06/3769544745
+- Cattle Crossing, Nepean Towers, N.S.W by Blue Mountains Library, Local Studies (CC BY-SA 2.0) — https://www.flickr.com/photos/26602074@N06/15388147772
+- American\_crocodile\_in\_calm\_water.jpg by Tomascastelazo (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:American_crocodile_in_calm_water.jpg
+- Videos provided by Pexels (https://www.pexels.com) — Piotr Zalewski
+- Ramesses-Ptah-Sekhmet.jpg by Egyptian\_Museum\_-\_Statue\_in\_front\_of\_trio\_of\_figures.JPG: Daniel Mayer derivative work: AnnekeBart (talk) (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Ramesses-Ptah-Sekhmet.jpg
+- File:Berlin Neues Museum - sarcophage d'Hori.jpg by Neithsabes (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/f/f6/Berlin_Neues_Museum_-_sarcophage_d%27Hori.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Diciannovesima dinastia, regno di Seth II, iyri, gran sacerdote di ptah, 1200-1194 ac..JPG by Sailko (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/6/68/Diciannovesima_dinastia%2C_regno_di_Seth_II%2C_iyri%2C_gran_sacerdote_di_ptah%2C_1200-1194_ac..JPG?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Stelae of a High Priest of Ptah with the cartouches of Cleopatra and Caesarion, Provenance Unknown.jpg by SpeakingArch (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/7/71/Stelae_of_a_High_Priest_of_Ptah_with_the_cartouches_of_Cleopatra_and_Caesarion%2C_Provenance_Unknown.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Ushabti Ankh-hapi Bologna.JPG by Khruner (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/2/20/Ushabti_Ankh-hapi_Bologna.JPG?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Ägyptisches Museum Berlin 165.jpg by Einsamer Schütze (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/5/52/%C3%84gyptisches_Museum_Berlin_165.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Videos provided by Pexels (https://www.pexels.com) — Atman Bouba, Salaheddine Es-sellak, ClickerHappy
+- Karnak Temple by andrea.prave (CC BY 2.0) — https://www.flickr.com/photos/24866547@N02/2826261362
+- File:AshmuneinMerenptahGate.jpg by Roland Unger (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/c/c5/AshmuneinMerenptahGate.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Luxor,\_Tal\_der\_Könige\_(1995,\_860x605).jpg by Fotograf/Photographer: Peter J. Bubenik (1995) (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Luxor,_Tal_der_Könige_(1995,_860x605).jpg
+- Hycsos Sphinx by Boston Public Library (CC BY 2.0) — https://www.flickr.com/photos/24029425@N06/2468310353
+- Mask\_of\_Amenemope1.jpg by tutincommon (John Campana) (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Mask_of_Amenemope1.jpg
+- File:Merenptah statue base Florence.JPG by Khruner (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/2/2a/Merenptah_statue_base_Florence.JPG?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- The 14 columns of the The Colonnade of Amenhotep III - Luxor Temple by Jorge Lascar (CC BY 2.0) — https://www.flickr.com/photos/8721758@N06/14075132558
+- Videos provided by Pexels (https://www.pexels.com) — Muhammed Fatih Beki
+- File:Deir el-Medina, Luxor, 3 Jan 2011 - panoramio.jpg by anagh (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/b/b2/Deir_el-Medina%2C_Luxor%2C_3_Jan_2011_-_panoramio.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Turin\_statue\_of\_Seti\_II.jpg by Roberto Venturini (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Turin_statue_of_Seti_II.jpg
+- File:Azulejo de Seti II (British Museum).jpg by Jl FilpoC (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/3/39/Azulejo_de_Seti_II_%28British_Museum%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Karnak temple 9453.JPG by Hedwig Storch (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/2/2a/Karnak_temple_9453.JPG?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Three Niches in the Chapel of Seti II. by zolakoma (CC BY 2.0) — https://www.flickr.com/photos/15164743@N05/2859220609
+- Seti\_II\_bust\_Florence.JPG by Khruner (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Seti_II_bust_Florence.JPG
+- KV17,\_the\_tomb\_of\_Pharaoh\_Seti\_I\_of\_the\_Nineteenth\_Dynasty,\_Valley\_of\_the\_Kings,\_Egypt\_(49845801903).jpg by Carole Raddato from Frankfurt, Germany (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:KV17,_the_tomb_of_Pharaoh_Seti_I_of_the_Nineteenth_Dynasty,_Valley_of_the_Kings,_Egypt_(49845801903).jpg
+- Ancient Egyptian Columns by M1key.me (CC BY 2.0) — https://www.flickr.com/photos/91418149@N03/19160205193
+- Wall reliefs from KV15 Seti II’s tomb.jpg by Tobeytravels (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Wall_reliefs_from_KV15_Seti_II’s_tomb.jpg
+- Videos provided by Pexels (https://www.pexels.com) — Maxim Pat, Mert Çelik
+- 1979\_wurde\_der\_Karnak-Tempel\_UNESCO\_Weltkulturerbe.\_01.jpg by Holger Uwe Schmitt (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:1979_wurde_der_Karnak-Tempel_UNESCO_Weltkulturerbe._01.jpg
+- File:Jar inscribed with the prenomen and nomen of Amenmesse. Faience, cylindrical. 19th Dynasty. From Cemetery C at el-Riqqeh, Egypt. The Petrie Museum of Egyptian Archaeology, London.jpg by Osama Shukir Muhammed Amin FRCP(Glasg) (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/f/f5/Jar_inscribed_with_the_prenomen_and_nomen_of_Amenmesse._Faience%2C_cylindrical._19th_Dynasty._From_Cemetery_C_at_el-Riqqeh%2C_Egypt._The_Petrie_Museum_of_Egyptian_Archaeology%2C_London.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Seti-II-StatueHead MetropolitanMuseum.png by Keith Schengili-Roberts (CC BY-SA 2.5) — https://commons.wikimedia.org/wiki/File:Seti-II-StatueHead_MetropolitanMuseum.png
+- Videos provided by Pexels (https://www.pexels.com) — 光曦 刘
+- Goddess\_Sekhmet\_from\_the\_Temple\_of\_Mut\_at\_Luxor,\_14th\_century\_BCE,\_National\_Museum,\_Copenhagen\_(36267315351).jpg by Richard Mortel from Riyadh, Saudi Arabia (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Goddess_Sekhmet_from_the_Temple_of_Mut_at_Luxor,_14th_century_BCE,_National_Museum,_Copenhagen_(36267315351).jpg
+- File:Siptah’s sarcophagus in Tomb KV47.jpg by Darren James (CC BY 2.0) — https://upload.wikimedia.org/wikipedia/commons/4/47/Siptah%E2%80%99s_sarcophagus_in_Tomb_KV47.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Wall paintings in Siptah's tomb, Valley of Kings.jpg by John D. Croft (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/d/d4/Wall_paintings_in_Siptah%27s_tomb%2C_Valley_of_Kings.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Rio\_nilo-aswan-2007\_(2).JPG by Alberto-g-rovi (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:Rio_nilo-aswan-2007_(2).JPG
+- Denderah,\_Relief\_on\_the\_Outside\_Wall.\_(1910)\_-\_TIMEA.jpg (CC BY-SA 2.5) — https://commons.wikimedia.org/wiki/File:Denderah,_Relief_on_the_Outside_Wall._(1910)_-_TIMEA.jpg
+- Foundation sandstone block showing 2 cartouches of king Siptah (Saptah, Merenptah-Siptah). 19th Dynasty. From the mortuary temple of Merenptah-Siptah at Thebes, Egypt. The Petrie Museum of Egyptian Archaeology, London.jpg by Osama Shukir Muhammed Amin FRCP(Glasg) (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Foundation_sandstone_block_showing_2_cartouches_of_king_Siptah_(Saptah,_Merenptah-Siptah)._19th_Dynasty._From_the_mortuary_temple_of_Merenptah-Siptah_at_Thebes,_Egypt._The_Petrie_Museum_of_Egyptian_Archaeology,_London.jpg
+- Videos provided by Pexels (https://www.pexels.com) — AXP Photography, BOB DK, Muhammed Fatih Beki, igovar igovar
+- Interior\_view\_of\_the\_Nekhbet\_Temple\_in\_El-Kab.jpg by Debborah Donnelly or https://www.debborahdonnelly.ca/ (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Interior_view_of_the_Nekhbet_Temple_in_El-Kab.jpg
+- File:1903 entdeckte Howard Carter das Grab von Thutmosis IV im Tal der Könige. 13.jpg by Holger Uwe Schmitt (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/d/d9/1903_entdeckte_Howard_Carter_das_Grab_von_Thutmosis_IV_im_Tal_der_K%C3%B6nige._13.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Twosret.jpg by en:User: John D. Croft (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/3/33/Twosret.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Temple\_of\_Edfu,\_Columns,\_Egypt.jpg by Vyacheslav Argenberg (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Temple_of_Edfu,_Columns,_Egypt.jpg
+- Ancient Stone carving by Erik's iMirror Photography Studio (CC BY-SA 2.0) — https://www.flickr.com/photos/28418816@N00/2705273835
+- Karnak Temple, Luxor, Egypt by \_jcthomas\_ (CC BY 2.0) — https://www.flickr.com/photos/8751402@N02/2505666568
+- Ptolemaic Temple of Hathor at Dendera (II) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/8389734605
+- Statue of Ramesses II with his daughter,Princess Bint-Anta between his legs flanking the second Pylon by Jorge Lascar (CC BY 2.0) — https://www.flickr.com/photos/8721758@N06/14210622215
+- The Temple to Ramesses II at Abu Simbel (III) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/6235133694
+- Relief\_of\_Horus\_and\_Geb\_from\_KV14\_(Kairoinfo4u).jpg by kairoinfo4u (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Relief_of_Horus_and_Geb_from_KV14_(Kairoinfo4u).jpg
+- Videos provided by Pexels (https://www.pexels.com) — James Lee, Mike van Schoonderwalt, Satyabrata Maiti, Kalvin Sainz
+- KhonsuTemple-Karnak-RamessesIII-2.jpg by Asavaa (CC BY-SA 3.0) — https://commons.wikimedia.org/wiki/File:KhonsuTemple-Karnak-RamessesIII-2.jpg
+- Thebes,\_Medinet\_Habu,\_Egypt,\_Temple\_of\_Ramesses\_III,\_Ancient\_Egypt,\_Guards\_2.jpg by Vyacheslav Argenberg (CC BY 4.0) — https://commons.wikimedia.org/wiki/File:Thebes,_Medinet_Habu,_Egypt,_Temple_of_Ramesses_III,_Ancient_Egypt,_Guards_2.jpg
+- Mortuary Temple of Ramesses III by astique (CC BY-SA 2.0) — https://www.flickr.com/photos/85049097@N00/1868204967
+- File:Granite sarcophagus lid of Ramses III in the Fitzwilliam Museum.jpg by Ethan Doyle White (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/1/16/Granite_sarcophagus_lid_of_Ramses_III_in_the_Fitzwilliam_Museum.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Karnak Khonsou 0805121.jpg by Neithsabes (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/9/98/Karnak_Khonsou_0805121.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Karnak Khonsou 080517.jpg by Neithsabes (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/1/1c/Karnak_Khonsou_080517.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Nile River Delta, Egypt by Paul Quast (CC BY 2.0) — https://www.flickr.com/photos/148318224@N03/34309720823
+- Abu\_Simbel\_Temple\_Egypt\_(1).jpg by Myousry6666 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Abu_Simbel_Temple_Egypt_(1).jpg
+- From\_inside\_the\_Temple\_of\_Habu,\_the\_main\_hall.jpg by Mohamedibrahem2025 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:From_inside_the_Temple_of_Habu,_the_main_hall.jpg
+- Sarcophagus\_of\_Horkhebit2007.jpg by https://www.flickr.com/photos/elika_and_shannon/ (CC BY 2.0) — https://commons.wikimedia.org/wiki/File:Sarcophagus_of_Horkhebit2007.jpg
+- Egypt by NASA Goddard Photo and Video (CC BY 2.0) — https://www.flickr.com/photos/24662369@N07/5635018418
+- File:Deir el-Medina, Luxor, 3 Jan 2011 - panoramio (3).jpg by anagh (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/5/53/Deir_el-Medina%2C_Luxor%2C_3_Jan_2011_-_panoramio_%283%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Deir el-Medina-02-Tempel von oben-Ptolemaeer-Zeit-2.JH-1982-gje.jpg by Gerd Eichmann (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/c/c4/Deir_el-Medina-02-Tempel_von_oben-Ptolemaeer-Zeit-2.JH-1982-gje.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- valley of the kings IR by Ndecam (CC BY 2.0) — https://www.flickr.com/photos/37035967@N07/6633740089
+- File:+Deir el-Medina - Das Dorf der Künstler und Handwerker. 03.jpg by Holger Uwe Schmitt (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/6/62/%2BDeir_el-Medina_-_Das_Dorf_der_K%C3%BCnstler_und_Handwerker._03.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Ptolemaic Temple Reliefs at Deir el-Medina (XVIII) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/8253422784
+- Madaan-saleh.jpg by رومان (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Madaan-saleh.jpg
+- File:Deir el-Medina, Luxor, 3 Jan 2011 - panoramio (1).jpg by anagh (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/1/14/Deir_el-Medina%2C_Luxor%2C_3_Jan_2011_-_panoramio_%281%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Deir el-Medina, Luxor, 3 Jan 2011 - panoramio (2).jpg by anagh (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/8/8d/Deir_el-Medina%2C_Luxor%2C_3_Jan_2011_-_panoramio_%282%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Panneau\_Direction\_Queens\_Valley\_Deir\_El\_Medina\_-\_Louxor\_(EG)\_-\_2025-12-11\_-\_2.jpg by Chabe01 (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Panneau_Direction_Queens_Valley_Deir_El_Medina_-_Louxor_(EG)_-_2025-12-11_-_2.jpg
+- File:Deir el-Medina, Luxor, 3 Jan 2011 - panoramio (5).jpg by anagh (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/8/85/Deir_el-Medina%2C_Luxor%2C_3_Jan_2011_-_panoramio_%285%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Burial\_chamber\_in\_tomb\_of\_Ramses\_V\_VI\_in\_Valley\_of\_the\_Kings\_West\_Bank\_Luxor\_Egypt.jpg by Tim Adams (CC BY 3.0) — https://commons.wikimedia.org/wiki/File:Burial_chamber_in_tomb_of_Ramses_V_VI_in_Valley_of_the_Kings_West_Bank_Luxor_Egypt.jpg
+- File:Deir el-Medina, Luxor, 3 Jan 2011 - panoramio (7).jpg by anagh (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/5/5d/Deir_el-Medina%2C_Luxor%2C_3_Jan_2011_-_panoramio_%287%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Deir el-Medina, Luxor, 3 Jan 2011 - panoramio (8).jpg by anagh (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/a/ab/Deir_el-Medina%2C_Luxor%2C_3_Jan_2011_-_panoramio_%288%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Deir el-Medina-04-Totengraeberstadt von oben-1982-gje.jpg by Gerd Eichmann (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/2/25/Deir_el-Medina-04-Totengraeberstadt_von_oben-1982-gje.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Deir el-Medina-06-Totengraeberstadt von oben-1982-gje.jpg by Gerd Eichmann (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/7/7b/Deir_el-Medina-06-Totengraeberstadt_von_oben-1982-gje.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Deir el-Medina ruins (2009a).jpg by Andrew® (CC BY 2.0) — https://upload.wikimedia.org/wikipedia/commons/3/35/Deir_el-Medina_ruins_%282009a%29.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- +Tempel\_der\_Arbeitersiedlung\_Deir\_el-Medina.\_06.jpg by Holger Uwe Schmitt (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:+Tempel_der_Arbeitersiedlung_Deir_el-Medina._06.jpg
+- All\_Gizah\_Pyramids.jpg by Ricardo Liberato (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:All_Gizah_Pyramids.jpg
+- File:180 Jahre hat es gedauert bis Der Edfu Tempel fertig gebaut war. 03.jpg by Holger Uwe Schmitt (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/e/e3/180_Jahre_hat_es_gedauert_bis_Der_Edfu_Tempel_fertig_gebaut_war._03.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:DraAbuNagaSite.jpg by Roland Unger (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/2/22/DraAbuNagaSite.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Ramesseum (V) by isawnyu (CC BY 2.0) — https://www.flickr.com/photos/34561917@N04/5916065137
+- 'Ginger' Gebelein Predynastic Mummy EA 32751, The British Museum, London by nikoretro (CC BY-SA 2.0) — https://www.flickr.com/photos/22768390@N00/167750863
+- Egyptian\_Black\_Funeral\_Dog\_-\_Flickr\_-\_larry^flo.jpg by Larry Miller from Grass Valley,CA, USA (CC BY-SA 2.0) — https://commons.wikimedia.org/wiki/File:Egyptian_Black_Funeral_Dog_-_Flickr_-_larry^flo.jpg
+- GD-EG-Alex-MuséeNat068.JPG by Gérard Ducher (user:Néfermaât) (CC BY-SA 2.5) — https://commons.wikimedia.org/wiki/File:GD-EG-Alex-MuséeNat068.JPG
+- Videos provided by Pexels (https://www.pexels.com) — Tiago Ventura
+- File:1903 entdeckte Howard Carter das Grab von Thutmosis IV im Tal der Könige. 11.jpg by Holger Uwe Schmitt (CC BY-SA 4.0) — https://upload.wikimedia.org/wikipedia/commons/6/66/1903_entdeckte_Howard_Carter_das_Grab_von_Thutmosis_IV_im_Tal_der_K%C3%B6nige._11.jpg?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:Amenhotep-HPA.JPG by Karnak15.JPG: Rémih
+- File:Karnak15.JPG by Rémih (CC BY-SA 3.0) — https://upload.wikimedia.org/wikipedia/commons/9/99/Karnak15.JPG?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:RamessesIX-OstraconPresentingMaat MetropolitanMuseum.png by Keith Schengili-Roberts (CC BY-SA 2.5) — https://upload.wikimedia.org/wikipedia/commons/6/69/RamessesIX-OstraconPresentingMaat_MetropolitanMuseum.png?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- File:RamessesIX-Relief MetropolitanMuseum.png by Keith Schengili-Roberts (CC BY-SA 2.5) — https://upload.wikimedia.org/wikipedia/commons/c/cb/RamessesIX-Relief_MetropolitanMuseum.png?utm_source=commons.wikimedia.org&utm_campaign=imageinfo&utm_content=original
+- Ramesseum,\_Luxor.jpg by Bilal Detailz (CC BY-SA 4.0) — https://commons.wikimedia.org/wiki/File:Ramesseum,_Luxor.jpg
+- Nile River Boats, Cairo by Terrazzo (CC BY 2.0) — https://www.flickr.com/photos/8249050@N02/30850879748
+- Videos provided by Pexels (https://www.pexels.com) — Jennifer, Michelle Chadwick, Diego F. Parra, Zetong Li
